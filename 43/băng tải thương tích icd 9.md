@@ -1,0 +1,105 @@
+# băng tải thương tích icd 9
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Thực trạng tai nạn thương tích và gánh nặng tử vong tại ](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Thực trạng tai nạn thương tích và gánh nặng tử vong tại 
+Thực trạng tai nạn thương tích và gánh nặng tử vong tại huyện ba vì TP hà nội năm 2014
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Lưới inox ® Hàng chính hãng Chất lượng cao - Nguyên Muôn](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## Lưới inox ® Hàng chính hãng Chất lượng cao - Nguyên Muôn
+Lưới inox hay còn gọi là lưới thép không gỉ. Lưới inox 201, 304 và 316 có ô lưới và kích thước đa dạng và phong phú. Có chứng nhận chất lượng đúng mác thép.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![CÔNG TY TNHH TM - DV - KỸ THUẬT QUỐC HƯNG](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## CÔNG TY TNHH TM - DV - KỸ THUẬT QUỐC HƯNG
+cÔng ty tnhh thƯƠng mẠi dỊch vỤ kỸ thuẬt quỐc hƯng. Địa chỉ: 98, Nguyễn Hữu Tiến, Phường Tây Thạnh, Quận Tân Phú, Thành phố Hồ Chí Minh. Văn phòng đại diện : 41 Đường số 22,P.Bình Hưng Hoà,Q.Bình Tân,TP.Hồ Chí Minh ( Nằm trong KCN Tân Bình mở rộng)
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ba Miền:Chuyên cung cấp vật tư thiết bị máy móc ngành Công ](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## Ba Miền:Chuyên cung cấp vật tư thiết bị máy móc ngành Công 
+CÔNG TY TNHH THƯƠNG MẠI QUẢNG CÁO BA MIỀN. Địa chỉ: 118/124 đường Bạc Đằng, F24, Q.Bình Thạnh, TP.HCM VP đại diện: 3/9A Đường số 6, F.9, Q.Gò Vấp, TP.HCM Vp Đại diện MT: 150 Nguyễn khuyến, phường đống đa, TP.Qui Nhơn, Bình Định Điện thoại: +84 8 6258 3536 6258 3544 Hotline: 0903.357.255 - 0908 63 61 63 - 0906 85 72 55
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Trái Tim Băng Được Đánh Thức : Chương 9:bang Chủ Mất Tích ](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## Trái Tim Băng Được Đánh Thức : Chương 9:bang Chủ Mất Tích 
+Đọc Truyện Online >>Truyện Teen >> Trái Tim Băng Được Đánh Thức >> Chương 9:bang Chủ Mất Tích Trước /35 GO Sau Trái Tim Băng Được Đánh Thức Chương 9:bang Chủ Mất Tích Đang tải nội dung : Trang 9 Trái Tim  Đấu Phá Thương Khung. Hôn nhân không tình .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Chứng nhận Thành tíche](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## Chứng nhận Thành tíche
+Công nhận thành tích của một người trong nhóm với mẫu chứng nhận trợ năng này. Cá nhân hóa mẫu đó để phù hợp với sự kiện hoặc thành tích. Thay đổi diện mạo bằng cách sử dụng các chủ đề tích hợp sẵn trong Word trên tab Thiết kế của dải băng trong Word.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hướng dẫn mã hoá bệnh tật, tử vong theo ICD-10 - Cục quản ](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## Hướng dẫn mã hoá bệnh tật, tử vong theo ICD-10 - Cục quản 
+ICD-10 đã giới thiệu một hệ thống và được kế thừa ở ICD-9 là có 2 mã cùng sử dụng cho nội dung chẩn đoán, trong đó chứa thông tin về bệnh chính toàn thân và biểu hiện lâm sàng ở .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hành lang Đông Bắc được khai thông lại nhờ tan băng Bắc ](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## Hành lang Đông Bắc được khai thông lại nhờ tan băng Bắc 
+Một sự kiện làm cho giới vận tải đường biển chú ý: ngày 16/9 hai chiếc tàu quốc tịch Đức là Beluga Fraternity và Beluga Foresight đã cập bến cảng Duch, Rotterdam sau gần hai tháng hành trình từ Hàn Quốc. Điều đặc biệt là hai tàu này đã đã đi qua đảo Chữ thập
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hàng trăm tiểu thương phản đối vì thông tin xây mới chợ ](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## Hàng trăm tiểu thương phản đối vì thông tin xây mới chợ 
+Sáng 9/4, trước thông tin xây chợ Đồng Xuân thành trung tâm thương mại, hàng trăm tiểu thương đã căng băng rôn phản đối.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![In Do Trần Mua Thêm Hơn 57 Triệu Cổ Phiếu STG, Nâng Sở Hữu ](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## In Do Trần Mua Thêm Hơn 57 Triệu Cổ Phiếu STG, Nâng Sở Hữu 
+ITL đã nắm cổ phần chi phối Sotrans . Cụ thể, vào khoảng tháng 5, ITL Corp đăng ký mua thêm hơn 57 triệu cổ phiếu STG, nhằm nâng sở hữu từ mức gần 42% (tương ứng .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bài 6 Mã hóa ICD-10 cho các bệnh nhân bị tai nạn thương ](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## Bài 6 Mã hóa ICD-10 cho các bệnh nhân bị tai nạn thương 
+Bài 6 Mã hóa ICD-10 cho các bệnh nhân bị tai nạn thương tích, TS. THẨM CHÍ DŨNG, HÀ NỘI 9-2013 . 12 925 2.  Tải xuống (5,000₫) 2. 1 / 12 trang. Nhúng link.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Phạm Băng Băng hiếm hoi đi sự kiện - Ngôi sao](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## Phạm Băng Băng hiếm hoi đi sự kiện - Ngôi sao
+Phạm Băng Băng gần đây tích cực xuất hiện trên các tạp chí,  Phạm Băng Băng sinh ngày 16/9/1981 tại Sơn Đông,  Thương hiệu Wedding Land ưu đãi mùa cưới 2020. 60 .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Động Cơ Kéo Băng Tải](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## Động Cơ Kéo Băng Tải
+Chuyên trang về Động cơ kéo băng tải Bán Xe Tải Ben Howo 3 Chân 4 Chân, Xe Đầu Kéo Howo Động Cơ 371Hp. Giá Tốt Nhất .xe Giao Ngay,bán Xe Tải Ben .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cảng nội đia ICD Lào Cai | vận chuyển hàng hóa | cho thuê ](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## Cảng nội đia ICD Lào Cai | vận chuyển hàng hóa | cho thuê 
+Thông số cảng ICD: - Tổng diện tích: 10ha - Kết nối đường sắt quốc gia: 1000m - Tổng diện tích kho bảo ôn, kho ngoại quan, kho CFS: 9000m2 - Bãi chứa container 65.000m2 - Trang thiết bị chuyên dụng: cẩu chụp 45T, xe nâng 3-5T, băng tải - Hệ thống phần mềm quản lý hiện đại.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tháng Một | 2015 | bangtaihang](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Tháng Một | 2015 | bangtaihang
+24 Tháng Một 2015 9 Tháng Tám 2018 intechvietnam1 Băng tải khac phuc su co bang tai, sửa chữa, sửa chữa băng tải, sua bang tai Bang tai cong nghiep được dùng trong hầu hết các ngành công nghiệp nặng đến các ngành công nghiệp nhẹ.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bán nhà mặt tiền đường 13, phường Tân Kiểng, Quận 7](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## Bán nhà mặt tiền đường 13, phường Tân Kiểng, Quận 7
+Bán nhà mặt tiền đường số 13, P.Tân Kiểng, Quận 7, nhà 1 lầu, DT 4,5x17m, giá 9,5 tỷ, thương lượng, đang cho thuê 14tr/th. - 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Nổ lớn tại Băng-la-đét, hơn 50 người thương vong - Báo ](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## Nổ lớn tại Băng-la-đét, hơn 50 người thương vong - Báo 
+· Roi-tơ và Tân Hoa xã ngày 5-9 đưa tin, ít nhất 16 người chết và hơn 30 người bị bỏng nặng, khi các máy điều hòa nhiệt độ tại một thánh đường Hồi giáo ở ngoại ô thủ đô Đắc-ca của Băng-la-đét phát nổ. Theo giới chức y tế Băng-la-đét, hầu hết nạn nhân bị bỏng từ 60% đến 70%.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ITL Corp hoàn tất thâu tóm Sotrans Group](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## ITL Corp hoàn tất thâu tóm Sotrans Group
+· Sau thương vụ, tỷ lệ sở hữu của ITL Corp tại Công ty Cổ Phần Kho Vận Miền Nam (Sotrans Group) là 97%. Giá trị thương vụ không được hai bên tiết lộ. Ông Đặng Doãn Kiên, Phó chủ tịch phụ trách Khối Đầu tư của ITL Corp cho biết, mua 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Máy thổi khí, Bơm định lượng, bơm trục vít, máy ép bùn ](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## Máy thổi khí, Bơm định lượng, bơm trục vít, máy ép bùn 
+Máy ép bùn khung bản, băng tải hiệu EMO sản xuất tại Pháp. Hệ thống sấy bùn (sau ép) hiệu EMO sản xuất tại Pháp, Thụy Sỹ. Máy ép bùn li tâm hiệu Pieralisi sản xuất tại Ý. Máy ép bùn dạng trục vít + đĩa (volute dewatering) hiệu BENENV sản xuất tại Nhật Bản.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ICD-9](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## ICD-9
+ICD-9 is de negende versie van International Statistical Classification of Diseases and Related Health Problems kortweg ICD, waarin aandoeningen systematisch geclassificeerd zijn. ICD-9 werd gepubliceerd door de wereldgezondheidsorganisatie in 1977.. In ICD-9 worden aandoeningen met een cijfercode beschreven: 001–139: Infectieziekten en parasitaire aandoeningen
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bỏng – Wikipedia tiếng Việt](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## Bỏng – Wikipedia tiếng Việt
+Bỏng hay phỏng là một loại chấn thương đối với da hoặc các mô khác do nhiệt, điện, hóa chất, ma sát, hay bức xạ. Hầu hết bỏng là do nhiệt nóng từ chất lỏng, chất rắn, hoặc chất cháy.Trong đó nhiều phụ nữ ở nhiều vùng trên thế giới có nguy cơ bỏng do dầu mỡ bắn vào khi nấu ăn hoặc bếp nấu ăn 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bắt băng chuyên dùng máy phá sóng định vị trộm xe đắt tiền](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## Bắt băng chuyên dùng máy phá sóng định vị trộm xe đắt tiền
+· Trong thời gian khoảng 4-5 ngày, băng nhóm này chọn địa bàn lưu trú và gây án, sau đó chuyển sang địa bàn khác hoạt động. Đến chiều 6-9, các trinh sát đã phục kích, bắt giữ hai thanh niên nghi vấn điều khiển xe Exciter lưu thông trên đường Đề Thám, quận Ninh Kiều.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cơ khí Đồng Nai | Băng Tải | Băng Chuyền|Cơ khí Hùng Thuận ](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## Cơ khí Đồng Nai | Băng Tải | Băng Chuyền|Cơ khí Hùng Thuận 
+Sản xuất cung cấp và thiết kế băng tải:Băng tải con lăn, băng tải pvc, băng  Công trình đươc xây dựng tại khu công nghiệp Hòa Khánh với tổng diện tích xây dựng gần  Lĩnh vực sản xuất giày Thể thao thương hiệu Nike. Công ty có hơn 28.000 CB-CNV, hiện nay công ty có 3 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Công ty TNHH thang máy APL](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## Công ty TNHH thang máy APL
+Công ty TNHH thang máy APL từng bước vươn lên để trở thành chuyên gia hàng đầu trong lĩnh vực tư vấn, cung cấp, lắp đặt và sửa chữa thang máy, thang cuốn tại Việt Nam.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bắt 5 người đánh 2 công an nhập viện](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## Bắt 5 người đánh 2 công an nhập viện
+· Công an vận động một gia đình tháo băng rôn có nội dung kích động thì bị nhiều người tấn công gây thương tích.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hai băng nhóm hỗn chiến ở quận Bình Tân, 2 người đi đường ](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## Hai băng nhóm hỗn chiến ở quận Bình Tân, 2 người đi đường 
+Hai băng nhóm hỗn chiến ở  truy xét vụ cố ý gây thương tích xảy ra tại nhà  Khởi tố giám đốc công ty bảo vệ dọa 'bắn vỡ sọ' tài xế xe tải.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

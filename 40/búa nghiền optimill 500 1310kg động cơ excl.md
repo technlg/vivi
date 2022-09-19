@@ -1,0 +1,25 @@
+# búa nghiền optimill 500 1310kg động cơ excl
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kích thước lưới là gì trong máy nghiền](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## Kích thước lưới là gì trong máy nghiền
+Kích thước lưới là gì trong máy nghiền.  a3, a4, a5, a6, a7 một các trực quan sinh động nhất theo tiêu chuẩn ISO 216 cùng với đó là cách tính các khổ giấy một cách chính xác nhanh chóng dễ nhớ dễ hiểu.. Việc lựa chọn kích thước khổ giấy phù hợp trong .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Máy khoan phay OPTImill MF 4V ](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## Máy khoan phay OPTImill MF 4V 
+Máy khoan phay OPTImill MF 4V Công suất 4 kW Điện áp 400 V Số pha 3 Ph Dòng điện ~ Tần số 50 Hz Cỡ dao phay mặt max 100 mm Cỡ dao phay ngón max 20 mm Họng máy trục đứng 200 - 680 mm Kết nối trục đứng ISO 40 DIN 2080 Dải tốc độ trục đứng 9 - 6.750 min¯¹ Số cấp tốc độ trục đứng 8
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Động cơ cho máy nghiền hàm](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## Động cơ cho máy nghiền hàm
+động cơ điện với rpm 1460 cho máy nghiền. động cơ điện với rpm 1460 cho máy nghiền; . Công ty Cơ Khí . So với máy nghiền hàm truyền thống trong các thông số lúc máy chuyển động nghiền, hình thức kết cấu, phương thức điều chỉnh đều có những cải tiến đáng kể.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kết quả thử nghiệm](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## Kết quả thử nghiệm
+nén hoạt động lại đưa nhiệt độ phòng về nhiệt độ cài đặt. Máy điều hòa không khí Inverter. Làm lạnh nhanh đến nhiệt độ cài đặt Thay đổi tốc độ vòng quay động cơ cho phép máy nén hoạt động ở công suất thấp, tiết kiệm điện năng. Công suất hoạt động giảm khi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Danh mục các phép thử của Phòng thử nghiệm VILAS 017 - PLC ](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## Danh mục các phép thử của Phòng thử nghiệm VILAS 017 - PLC 
+TT. LĨNH VỰC THỬ NGHIỆM. TÊN PHƯƠNG PHÁP: PHƯƠNG PHÁP THỬ. 1. Dầu nhờn gốc dầu mỏ. Phương pháp xác định Chỉ số độ nhớt từ độ nhớt động học tại 40 và 100 o C. Standard Practice for Caculating Viscosity Index from Kinematic Viscosity at 40 and 100 o C. ASTM D(98). 2.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Động cơ đi - Enertech Electric Motors (Australia)](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## Động cơ đi - Enertech Electric Motors (Australia)
+động cơ hoàn chỉnh, vì sai lệch sẽ gây ra sự suy giảm tuổi thọ bạc đạn một cách nhanh chóng dẫn đến các lỗi cơ khí khác do sức ép trong quá trình vận hành. - Sau khi thắt chặt chốt của đệm bu lông,
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

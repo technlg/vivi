@@ -1,0 +1,145 @@
+# thảm họa mỏ than dhanbad năm 1965 đầy ppt
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![dahanhkhach: Tổng hợp tin tức](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## dahanhkhach: Tổng hợp tin tức
+Gần một năm rưỡi sau thảm họa tràn bùn đỏ vào tháng, vì phải đối mặt với hàng loạt vụ kiện cáo sẽ diễn ra trong những tháng tới. Ngày 11/02/2012, các chủ sở hữu Tập đoàn Nhôm Hungary (MAL Zrt.) đã đề nghị chuyển giao 50% cổ phần của hãng này cho Nhà nước 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tháng Hai | 2011 | Banmaihong's Blog | Trang 2](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## Tháng Hai | 2011 | Banmaihong's Blog | Trang 2
+Bắt giữ 3 xe tải chở đầy dâu tây Trung Quốc đưa lên Đà Lạt 23 Tháng Bảy 2020; Chính thức từ năm học, giáo viên được nghỉ hè 8 tuần 23 Tháng Bảy 2020; 12 dấu hiệu của người sống chân thật, không sống đạo đức giả 23 Tháng Bảy 2020
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bauxite Việt Nam: Những con số biết nói và những thực ](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## Bauxite Việt Nam: Những con số biết nói và những thực 
+Nguyễn Thành Lê Với người Việt thì căn bệnh "sốt" không có gì là lạ. Dù là sốt rét rừng hung hiểm đến sốt xuất huyết chết người. hay sốt n
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Vinh Quang của Phi Lý – Phan Ba's Blog](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## Vinh Quang của Phi Lý – Phan Ba's Blog
+Điều này đã được minh họa một cách bi thảm nhất bằng cuộc thảm sát tàn khốc tại Huế năm 1968 mà ông đã mô tả lại rất tỉ mỉ.  Zeitung đã tóm tắt lý do thắng cuộc của chế độ toàn trị này bằng một câu nói ngắn gọn đầy bi thảm  Vào đầu năm 1965 khi tôi 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Thơ - Nhạc - Văn Nghệ Sĩ - Thi Sĩ - Lá Thư Úc châu - Page ](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## Thơ - Nhạc - Văn Nghệ Sĩ - Thi Sĩ - Lá Thư Úc châu - Page 
+Mot Minh -Thanh Tung -Hong Nhung -NNS 1.Nhạc: Một Mình Nhạc: Thanh Tùng - Tiếng hát: Hồng Nhung 2.Đọc: Lệch-Lật-Giang-Hồ:Thái t
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![thảm họa mỏ than dhanbad ấn độ](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## thảm họa mỏ than dhanbad ấn độ
+mỏ trong chhattisgarh . 1 Tháng Mười Một 2017 Đây là một trong những thảm họa công nghiệp tồi tệ nhất Ấn Độ. Trước Thảm họa nổ hầm mỏ Chasnala ở bang Jharkhand năm 1975 là một trong Sập ống khói ở TP Korba (bang Chhattisgarh) năm 2009, 45 người chết.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Nhìn lại thảm họa kép động đất sóng thần Nhật Bản năm 2011 ](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## Nhìn lại thảm họa kép động đất sóng thần Nhật Bản năm 2011 
+(Dân trí) - Đã 4 năm trôi qua nhưng thảm họa kép động đất, sóng thần tại miền đông bắc nước Nhật vẫn là những ký ức không thể nào phai trong tâm trí của người dân Nhật Bản, đồng thời để lại những tác động nặng nề tới các hoạt động kinh tế và xã hội của nước này.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Nhật Bản 2 năm sau thảm họa động đất, sóng thần](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## Nhật Bản 2 năm sau thảm họa động đất, sóng thần
+Ngày 11/3 tới, Nhật Bản sẽ tổ chức lễ tưởng niệm ngày xảy ra thảm họa động đất và sóng thần làm hơn 19.000 người thiệt mạng. Chính phủ hứa sẽ thúc đẩy công tác khôi phục nhưng sự hoang vu vẫn hiện diện tại vùng đất bị thiên tai tàn phá.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mục Lục Hội Quán Phi Dũng](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## Mục Lục Hội Quán Phi Dũng
+STT Tựa bài Member Forum Forumid Reply Views 6401
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ngư dân « Trần Hoàng Blog](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## Ngư dân « Trần Hoàng Blog
+Trong vòng chưa đầy ba năm, có gần 4,500 tàu cá của ngư dân Việt Nam bị bắn phá, đâm chìm và bắt bớ trên biển Đông. Cũng trong vòng chưa đầy ba năm, có hơn 2000 ngư dân bị bắt bớ, đánh đập và bắn giết. Đây là một con số quá khủng khiếp cho nghề đi biển!
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cứu Trợ Thương Phế Binh VNCH](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## Cứu Trợ Thương Phế Binh VNCH
+<div class="separator" style="clear: both; text-align: center;"><a href=" 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MTGPMN, CPCMLT MNVN | Diễn đàn Paltalk TiengNoi TuDo Cua ](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## MTGPMN, CPCMLT MNVN | Diễn đàn Paltalk TiengNoi TuDo Cua 
+Điều 146. Năm 1998, Dr. Hoa bị bệnh ung thư vú và phảigiải phẩu cắt bỏ ngực. Điều 147. Năm 1999, Dr. Hoa thử máu và khám phá ra nồng độ chất độc da cam dioxin trong máu bà cao hơn độ bình thường rất nhiều. Điều 148.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![trên máy nghiền dòng cho clinker sần](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## trên máy nghiền dòng cho clinker sần
+Trong 20 năm qua, chúng tôi dành cho việc sản xuất các thiết bị khai thác, máy làm cát và nhà máy nghiền công nghiệp, cung cấp các dự án đường cao tốc, đường sắt và bảo tồn nước, giải pháp sản xuất cát cao cấp và thiết bị phù hợp.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![máy nghiền nhà máy dịch vụ cuốn sách](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## máy nghiền nhà máy dịch vụ cuốn sách
+danh sách các mỏ đá granite ở Ấn Độ; lý do thảm họa mỏ than dhanbad năm 1965; plantasphalt nhà máy trống trộn để bán; cuộc phỏng vấn của Todd hoffman; nhà máy bóng hoạt động và bảo trì tại Trung Quốc; rung sửa chữa screcrack; lực ly tâm gián đoạn
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![hình ảnh mỏ hồ philippines](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## hình ảnh mỏ hồ philippines
+hình ảnh cát mỏ đá - tonerpak . hình ảnh máy nghiền titan d -160 – máy nghiền bột trục lăn treo, đến từ:trang chủ >xuanshi4 > > hình ảnh máy nghiền titan d -160chế biến quặng, bao gồm máy nghiền hàm jc, hình ảnh máy nghiền titan d 160tác động của máy nghiền hình là than đá 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Wikipedia, bách khoa toàn thư mở](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## Wikipedia, bách khoa toàn thư mở
+Trang này được sửa đổi lần cuối vào ngày 9 tháng 5 năm 2020 lúc 17:42. Văn bản được phát hành theo Giấy phép Creative Commons Ghi công–Chia sẻ .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![4 năm nhìn lại thảm họa động đất sóng thần Nhật Bản 2011](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## 4 năm nhìn lại thảm họa động đất sóng thần Nhật Bản 2011
+4 năm nhìn lại thảm họa động đất sóng thần Nhật Bản 2011 Trận đại hồng thủy có tên "Động đất và sóng thần Tohoku 2011" đã cướp đi gần 16.000 sinh mạng, .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Giáo án văn 12 HK1 phát triển năng lực soạn 5 hoạt động ](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## Giáo án văn 12 HK1 phát triển năng lực soạn 5 hoạt động 
+GIÁO ÁN VĂN PHÁT TRIỂN NĂNG LỰC. Ths Nguyễn Thanh Tú eBook Collection. Giáo án văn 12 HK1 phát triển năng lực soạn 5 hoạt động (Mục tiêu/Phương pháp/Kĩ thuật 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Thích thì rinh dzìa để dzành: TƯ LIỆU LIÊN QUAN ĐẾN BẢN ](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## Thích thì rinh dzìa để dzành: TƯ LIỆU LIÊN QUAN ĐẾN BẢN 
+Như vậy theo kế hoach trong giai đoạn 2007 – 2015 có 6 nhà máy alumin ở Tây Nguyên được xây dựng (tổng công suất 6,4 – 8,4 triệu tấn alumin/năm) khi chưa có đường sắt thì khối lượng vận tải than, hóa chất. sẽ rất lớn vì xe ô tô vận tải để chuyển than, hóa chất và 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Những "góc khuất" trên vựa lúa ĐBSCL](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## Những "góc khuất" trên vựa lúa ĐBSCL
+Vùng ĐBSCL là vựa lúa lớn nhất cả nước, xưa nay được biết đến là nơi dễ kiếm sống bởi thiên nhiên ưu đãi nhưng đời sống của những hộ nông dân nghèo, ít đất đai làm ăn thì sao?
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![bờM ®™ Blog: Dành cho những người LƯỜIleo tường lửa: Di ](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## bờM ®™ Blog: Dành cho những người LƯỜIleo tường lửa: Di 
+Bẩy Hồng: Di. chúc! Cuộc đời và cái chết rất buồn Trong nhiều vụ án tranh chấp về tài sản thừa kế, kiện tụng đòi chia nhà cửa
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![THỊ TRƯỜNG GẠO THẾ GIỚI THÁNG 7/2008](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## THỊ TRƯỜNG GẠO THẾ GIỚI THÁNG 7/2008
+Giá gạo thế giới giảm trong tháng 7; Thái Lan bắt đầu chương trình can thiệp hỗ trợ giá, trong khi Việt Nam đặt ra thuế xuất khẩu gạo; Dự báo giá gạo sẽ ổn định trong tháng tới.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![hình ảnh mỏ hồ philippines](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## hình ảnh mỏ hồ philippines
+Toyota Yaris 2014 giá 620 triệu (E) - 669 triệu (G) Năm sản xuất 2014 Hatchback, 5 cửa, 5 chỗ ngồi Ghế da số tự động 4 cấp, động cơ xăng, dung tích 1.497 cm3 Giá: 620.000.000 VND (E) 669.000.000 VNĐ (G) Đang khuyến mại giảm giá liên hệ ngay Toyota Hùng Vương hotline: TRẺ TRUNG NỔI BẬT CÁ TÍNH Ấn tượng từ cái nhìn 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Thảm họa sóng thần năm 2004 tại Indonesia qua loạt ảnh](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## Thảm họa sóng thần năm 2004 tại Indonesia qua loạt ảnh
+Dec 14, 2014· 10 năm sau thảm họa khủng khiếp trên, Indonesia đã tiến hành công cuộc xây dựng, tái thiết khu vực bị ảnh hưởng nặng nề bởi thảm họa thiên nhiên đó. Ảnh trên là quang cảnh hoang tàn ở huyện Banda Aceh, tỉnh Aceh nằm trên đảo Sumatra được chụp vài ngày sau khi xảy ra thảm họa sóng thần khủng khiếp nhất 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Vanhoavn's Blog (Văn Hóa Việt Nam): NGUYỄN TẤN DŨNG - HỒ ](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## Vanhoavn's Blog (Văn Hóa Việt Nam): NGUYỄN TẤN DŨNG - HỒ 
+Nov 01, 2016· Năm 1965, Mỹ cho không quân ra đánh phá miền Bắc. Cầu Hàm Rồng,Thanh Hoá, là một trọng điểm oanh tạc của chúng. Anh chị em dân quân Nam Ngạn, Hàm Rồng phối hợp cùng với pháo binh tải đạn và bắn máy bay giặc.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![2014 Tháng Chín « Trần Hoàng Blog](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## 2014 Tháng Chín « Trần Hoàng Blog
+1. Lời tiên đoán cuả Ronald Reagan (khi đang còn là Thống Đốc của tiểu bang California ) về cuộc rút quân đội Mỹ ra khỏi VN năm 1973 có khả năng để lại các thảm họa .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![THẢM HOẠ MT 1968 – Cao Mỵ Nhân](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## THẢM HOẠ MT 1968 – Cao Mỵ Nhân
+Dư âm của Tết Mậu Thân, mùa xuân 1968, tới nay, đã nửa thế kỷ. Tức là 1968- 2018, đúng 50 năm, bằng thời gian Trịnh Nguyễn phân tranh, nhưng chưa thấy dấu hiệu xoá được cái hận thù khinh miệt của người miền nam Tự Do đối với người miền Bắc xã hội chủ.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![2016 Tháng Sáu « Trần Hoàng Blog](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## 2016 Tháng Sáu « Trần Hoàng Blog
+Thứ năm, dù sao, cũng phải ghi nhận tinh thần. dũng cảm của những người vừa mới biết là nếu không nhận sai thì tai họa chất chồng! Xin dẫn ra đây một đoạn trên báo Tuổi Trẻ, 28.6.2016,09:57 GMT+7,để thay cho lời kết – và, cũng để cho người dân biết quốc hội ta 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Thảm họa thiên nhiên năm 2008 qua ảnh](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## Thảm họa thiên nhiên năm 2008 qua ảnh
+Dưới đây là những bức ảnh về các thảm họa thiên nhiên khủng khiếp trong năm qua. Chiếc xe taxi bị đè nát sau cơn động đất kinh hoàng hồi tháng 5 ở Tứ Xuyên, Trung Quốc khiến 88.000 người thiệt mạng, 375.000 người bị thương, 5 triệu người mất nhà cửa và hơn 1,5 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![tôi muốn bán đá granite ở malaysia](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## tôi muốn bán đá granite ở malaysia
+danh sách các mỏ đá granite ở Ấn Độ; lý do thảm họa mỏ than dhanbad năm 1965; plantasphalt nhà máy trống trộn để bán; cuộc phỏng vấn của Todd hoffman; nhà máy bóng hoạt động và bảo trì tại Trung Quốc; rung sửa chữa screcrack; lực ly tâm gián đoạn
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![3000](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## 3000
+Danh sách 3000 từ vựng tiếng Anh cơ bản hay dùng nhất trong cuộc sống giao tiếp hằng ngày. Muốn giỏi nhanh? Hãy theo hướng dẫn bí kíp giúp tăng vọt vốn từ vựng - một tháng học 3000 tiếng Anh cơ bản hay dùng nhất trong cuộc sống và giao tiếp hằng ngày. 100 câu trắc nghiệm ngữ pháp và từ vựng Tiếng Anh Phương 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Khi Đảng cố sức đóng tàu: Hiện tượng Phạm Thanh Bình ](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## Khi Đảng cố sức đóng tàu: Hiện tượng Phạm Thanh Bình 
+Hiện tượng Phạm Thanh Bình Tuan Viet Nam Khủng hoảng Vinashin tất nhiên gắn liền với trách nhiệm của người từng giữ chức vụ cao nhất tại tập đoàn này là nguyên Chủ tịch hội đồng Quản trị Phạm Thanh Bình. Suy tư về trường hợp Vinashin nói chung, về ông Bình nói riêng và.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TaiLieu.VN: Thư Viện chia sẻ Tài liệu, Luận văn, Biểu mẫu ](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## TaiLieu.VN: Thư Viện chia sẻ Tài liệu, Luận văn, Biểu mẫu 
+Bộ đề thi tuyển sinh vào lớp 10 năm có đáp án. 04/03/2020. 27 tài liệu lanwangji. 16785. Bộ đề thi thử THPT Quốc gia năm 2020 (Có đáp án) 04/03/2020. 46 tài liệu lanwangji. 12905. Tuyển chọn đề thi học sinh giỏi môn Tiếng Anh lớp 6 năm 2018. 21/02/2019 . 6 tài liệu 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BenTreHome Forums > Sưu Tầm Đó Đây (Của Hoa Hạ)](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## BenTreHome Forums > Sưu Tầm Đó Đây (Của Hoa Hạ)
+May 07, 2016· Mùa hè năm 1963, anh họ tôi là phiên dịch tiếng Nga dẫn tôi cùng đứa em trai đến nhà ông chuyên gia mỏ thiếc Tĩnh Túc ở Hà Nội. Ông bà ấy đón tiếp rất tử tế, ngoài việc chiêu đãi bánh ngọt và nước trà chanh, còn mở máy quay đĩa cho chúng tôi nghe.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tự nhiên – Wikipedia tiếng Việt](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## Tự nhiên – Wikipedia tiếng Việt
+Tự nhiên hay cũng được gọi thiên nhiên, thế giới vật chất, vũ trụ và thế giới tự nhiên (tiếng Anh: nature) là tất cả vật chất và năng lượng chủ yếu ở dạng bản chất. "Tự nhiên" nói đến các hiện tượng xảy ra trong thế giới vật chất, và cũng nhắc đến sự sống nói chung.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![moi truong va con nguoi](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## moi truong va con nguoi
+Năm 1975, chỉ khoảng 1/3 dân số thế giới sống ở đô thị. Dự đoán đến năm 2025, tỉ lệ này sẽ tăng đến 2/3. Ở Mỹ, năm 1800, mới chỉ có 6% dân sống đô thị, đến năm 1970, số dân sống ở đô thị và ven đô đã lên đến 75% (P.R.Ehrlich, J.P.Holdren, 1973).
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

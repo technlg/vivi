@@ -1,0 +1,153 @@
+# talc về công nghệ đúc
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KIM HOÀN ONLINE: BÍ MẬT VỀ CÔNG NGHỆ ĐÚC TRANG SỨC .](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## KIM HOÀN ONLINE: BÍ MẬT VỀ CÔNG NGHỆ ĐÚC TRANG SỨC .
+bÍ mẬt vỀ cÔng nghỆ ĐÚc trang sỨc cỦa ngƯỜi churu Nghệ nhân Ya Tuất và sản phẩm của mình Trong ngôn ngữ của dân tộc Churu ở Nam Tây Nguyên, từ "srí"(nhẫn mái) có nghĩa là chiếc nhẫn dành cho nữ giới và sră là chiếc nhẫn dành cho nam giới (nhẫn trống).
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Giới thiệu về các quy trình công nghệ đúc - YouTube](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## Giới thiệu về các quy trình công nghệ đúc - YouTube
+· Gồm nhiều quy trình đúc thường gặp như đúc khuôn cát, đúc mẫu chảy, đúc tự hủy,.. Bạn sẽ nắm được 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Công nghệ đúc – Wikipedia tiếng Việt](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## Công nghệ đúc – Wikipedia tiếng Việt
+Công nghệ đúc là công nghệ chế tạo sản phẩm bằng phương pháp rót vật liệu ở dạng chảy lỏng vào khuôn để tạo ra sản phẩm có hình dạng theo khuôn mẫu. Đa phần công nghệ đúc thực hiện với các vật liệu kim loại.. Công nghệ đúc được chia thành hai loại chính: Đúc thông thường và Đúc đặc biệt
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![THIẾT KẾ ĐÚC | CÔNG NGHỆ ĐÚC](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## THIẾT KẾ ĐÚC | CÔNG NGHỆ ĐÚC
+Chi tiết đúc muôn hình muôn vẻ, thiết kế công nghệ đúc lại càng đa dạng, tùy theo điều kiện của mỗi người, tùy điều kiện từng xưởng sẽ có những cách giải quyết riêng để cùng đạt tới mục tiêu chế tạo ra sản phẩm đúc bền, nhẹ năng suất cao.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Công nghệ 11 Bài 16: Công nghệ chế tạo phôi](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## Công nghệ 11 Bài 16: Công nghệ chế tạo phôi
+1.1. Công nghệ chế tạo phôi bằng phương pháp đúc. 1.2. Công nghệ chế tạo phôi bằng phương pháp gia công áp lực. 1.3. Công nghệ chế tạo phôi bằng phương pháp gia công hàn. 2. Bài tập minh hoạ. 3. Luyện tập bài 16 Công Nghệ 11. 3.1. Trắc nghiệm . 3.2. Bài tập SGK & Nâng cao. 4.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bài giảng Tổng quan về công nghệ đúc áp lực - Tài liệu ](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## Bài giảng Tổng quan về công nghệ đúc áp lực - Tài liệu 
+II. TÌM HIỂU CHUNG VỀ CÔNG NGHỆ ĐÚC ÁP LỰC CAO. 1. Thế nào là đúc áp lực cao. Đúc áp lực cao là công nghệ trong đó kim loại lỏng điền đầy khuôn và đồng đặc dưới tác dụng của áp lực cao do d òng khí nóng hoặc dầu ép trong xilanh ép tạo ra.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![CÔNG NGHỆ ĐÚC NHÔM](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## CÔNG NGHỆ ĐÚC NHÔM
+Công Nghệ Đúc Nhôm. Hợp kim nhôm là một trong số rất ít các kim loại có thể đúc được bằng nhiều phương pháp như đúc áp lực, đúc khuôn kim loại, đúc khuôn cát (khuôn cát khô và khuôn cát tươi), khuôn thạch cao, đúc mẫu chảy, đúc liên tục. Một số phương pháp đúc tiên tiến mới, như đúc .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Những yêu cầu cơ bản về đúc gang cầu, gang xám bằng công ](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## Những yêu cầu cơ bản về đúc gang cầu, gang xám bằng công 
+Công ty Cổ phần Đại Tín Việt Nam Những yêu cầu cơ bản về đúc gang cầu, gang xám bằng công nghệ làm khuôn cát tự đóng dắn cho chất lượng tốt nhất, đẹp nhất, không có khuyết tật bên trong sản phẩm
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tìm hiểu về 5 công nghệ đúc kim loại nổi phố biến nhất ](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## Tìm hiểu về 5 công nghệ đúc kim loại nổi phố biến nhất 
+Đúc kim loại ( gang, nhôm, .) là công nghệ chế tạo sản phẩm bằng phương pháp rót vật liệu ở dạng chảy lỏng vào khuôn để tạo ra sản phẩm có hình dạng theo khuôn mẫu mà vật liệu là kim loại. Ngày nay đúc kim loại ( gang, nhôm, .) được sử [.]
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cổng nhôm đúc Nghệ An - Chuyên gia số 1 về cổng nhôm đúc.](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## Cổng nhôm đúc Nghệ An - Chuyên gia số 1 về cổng nhôm đúc.
+Cổng nhôm đúc Nghệ An-Chuyên thiết kế,chế tạo cổng nhôm đúc, cổng biệt thự cùng 10 năm kinh nhiệm trong nghành nhôm đúc.Cam kết ĐẸP NHẤT-RẺ NHẤT-BỀN NHẤT.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tiêu chuẩn Việt Nam TCVN 3809:1983 về Tài liệu công nghệ ](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## Tiêu chuẩn Việt Nam TCVN 3809:1983 về Tài liệu công nghệ 
+ đã ban hành Tiêu chuẩn Việt Nam TCVN 3809:1983 về Tài liệu công nghệ - Quy tắc trình bày tài liệu đúc Thuộc lĩnh vực Công nghiệp
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Khái quát về công nghệ đúc](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Khái quát về công nghệ đúc
+phần 1: cÔng nghỆ ĐÚc chƯƠng 1 khÁi niỆm vỀ quÁ trÌnh sẢn xuẤt ĐÚc chƯƠng 2 thiẾt kẾ ĐÚc chƯƠng 3 cÔng nghỆ chẾ tẠo mẪu vÀ hỘp lÕi chƯƠng 4 cÔng nghỆ chẾ tẠo khuÔn vÀ lÕi chƯƠng 5 ĐÚc cÁc hỢp kim chƯƠng 6 khuyẾt tẬt vẬt ĐÚc
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![3 Giới thiệu về khuôn và công nghệ ép xốp - Tài liệu text](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## 3 Giới thiệu về khuôn và công nghệ ép xốp - Tài liệu text
+b) Lòng khuôn và lõi khuôn đúc xốp tạo hình a. Công nghệ chế tạo khuôn mẫu Công nghệ truyền thống Hầu hết các công việc cơ bản đều do con người trực tiếp thực hiện:-Thu thập thông tin sản phẩm. Phác họa ý tưởng – phân tích, lựa chọn ý tưởng phù hợp.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Giới thiệu về công nghệ đúc danh mục](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## Giới thiệu về công nghệ đúc danh mục
+Có thể tải ca-ta-lốc về theo Giới thiệu về công nghệ đúc của CAN CORPORATION. TECH DIRECTORY Vietnam miễn phí đăng ký hội viên!
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TÀI LIỆU VỀ CÔNG NGHỆ ĐÚC HẪNG - Tài liệu](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## TÀI LIỆU VỀ CÔNG NGHỆ ĐÚC HẪNG - Tài liệu
+Tài liệu về TÀI LIỆU VỀ CÔNG NGHỆ ĐÚC HẪNG - Tài liệu, TAI LIEU VE CONG NGHE DUC HANG - Tai lieu tại 123doc - Thư viện trực tuyến hàng đầu Việt Nam
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ngành công nghệ đúc và các chất thải đặc trưng kèm theo ](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## Ngành công nghệ đúc và các chất thải đặc trưng kèm theo 
+Đa phần công nghệ đúc thực hiện với các vật liệu kim loại. Công nghệ đúc chia thành 2 loại chính là: Đúc thông thường và đúc đặc biệt. Ngành công nghệ đúc có .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Công nghệ Đúc GTR | Chuyên gia về các sản phẩm đúc](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## Công nghệ Đúc GTR | Chuyên gia về các sản phẩm đúc
+Tư vấn: Tư vấn về thiết kế và vật liệu. Phạm vi dịch vụ của chúng tôi bắt đầu từ khâu tư vấn trong lĩnh vực vật tư và thi công, và trải rộng từ khâu thiết kế, lắp ráp các sản phẩm đúc cho đến lựa chọn nhà cung cấp có năng lực.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TSMC tăng cường đầu tư công nghệ bán dẫn để gia tăng ](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## TSMC tăng cường đầu tư công nghệ bán dẫn để gia tăng 
+· Thị trường đúc dự kiến sẽ đạt 80 tỷ USD vào năm 2020. Trước tình hình đó, TSMC đang tìm cách củng cố vị trí dẫn đầu về công nghệ của mình bằng cách tăng cường đầu tư cơ sở vật chất.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tìm hiểu về công nghệ LED với LED đúc f8 | Nhật tảo](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## Tìm hiểu về công nghệ LED với LED đúc f8 | Nhật tảo
+Những tấm biển quảng cáo ngày nay ngày càng được cái tiến để trở nên bắt mắt, gây được sự chú ý cho mọi người. Do vậy những vật dụng để tạo ra biển
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tổng quan về công nghệ ép phun – Thổi - Luận văn, đồ án ](https://github.com/technlg/images/blob/main/65.jpg)</a>
+## Tổng quan về công nghệ ép phun – Thổi - Luận văn, đồ án 
+TổNG QUAN Về CÔNG NGHệ ÉP PHUN – THổI 2.1. Công nghệ ép phun 2.1.1 Giới thiệu Công nghệ ép phun là công nghệ truyền thống của ngành sản xuất nhựa, được phát triển qua 4 thế hệ máy, thế hệ thứ 4 là các loại máy ép điện, ép gaz đang dược áp dụng phổ biến ở các 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Giớ thiệu về công nghệ đúc - Nắp hố ga Đại Tín](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## Giớ thiệu về công nghệ đúc - Nắp hố ga Đại Tín
+2. Công nghệ đúc đặc biệt. Là phương pháp khác đúc thông thường, đúc đặc biệt có sự khác biệt về nguyên liệu và công nghệ làm khuôn, cách điền đầy và tạo hình vật đúc. Đúc đặc biệt thường sử dụng khuôn kim loại. Thường có các dạng: Đúc trong khuôn kim loại 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tổng quan về công nghệ đúc áp lực - Tài liệu, ebook](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## Tổng quan về công nghệ đúc áp lực - Tài liệu, ebook
+Tổng quan về công nghệ đúc áp lực - Như vậy ta hoàn tất các nội dung cần nghi ên cứu trong phạm vi đề t ài tốt nghiệp. Thông qua quá trình th ực hiện
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tài liệu Công Nghệ Đúc Kim Loại chọn lọc](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## Tài liệu Công Nghệ Đúc Kim Loại chọn lọc
+Có nội dung trình bày về công nghệ đúc trong khuôn cát, các phương pháp đúc đặt biệt, các hợp kim và phương pháp nấu rót tiên tiến Tài liệu Kỹ nghệ đúc kim loại do KS Nguyễn Văn Đức biên soạn sẽ giúp các bạn sinh viên và giảng viên có thêm Tài liệu tham khảo.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Quy trình về công nghệ đúc | Tiếng Anh Kỹ Thuật](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Quy trình về công nghệ đúc | Tiếng Anh Kỹ Thuật
+Các quy trình về công nghệ đúc. June 16, 2016. 2,439 views. 0. Phương pháp đúc trong cát là phương pháp đúc phổ biến nhất. Gồm hai nửa khuôn trên và khuôn trên và khuôn dưới, và quá trình đúc kim loại diễn ra trong lòng khuôn.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Lục đục trong quan hệ Nga - Trung](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## Lục đục trong quan hệ Nga - Trung
+Quan hệ giữa Nga và Trung Quốc có dấu hiệu rạn nứt vì xung đột biên giới Ấn - Trung và những tiết lộ Trung Quốc dọ thám, đánh cắp công nghệ quốc 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Giới thiệu về công nghệ đúc áp lực](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## Giới thiệu về công nghệ đúc áp lực
+Công nghệ đúc áp lực là gì? Theo các chuyên gia về đúc áp lực cho biết thì đây là một phương pháp chế tạo các vật đúc có năng suất rất cao, có thể hoàn toàn .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TỔNG QUAN về CÔNG NGHỆ đúc áp lực - Tài liệu](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## TỔNG QUAN về CÔNG NGHỆ đúc áp lực - Tài liệu
+Tài liệu về TỔNG QUAN về CÔNG NGHỆ đúc áp lực - Tài liệu, TONG QUAN ve CONG NGHE duc ap luc - Tai lieu tại 123doc - Thư viện trực tuyến hàng đầu Việt Nam
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ường Cao đẳng nghề số 8 – Khoa Cơ khí chế tạo Phần 1. CÔNG ](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## ường Cao đẳng nghề số 8 – Khoa Cơ khí chế tạo Phần 1. CÔNG 
+Trường Cao đẳng nghề số 8 – Khoa Cơ khí chế tạo Giáo trình: Công nghệ kim loại 1 Phần 1.CÔNG NGHỆ ĐÚC Bài 1. CÔNG NGHỆ ĐÚC 1.1.1. Khái niệm về quá trình sản xuất đúc 1.1.1.1. Định nghĩa:-Đúc là quá trình điền đầy kim loại ở thể lỏng vào lòng khuôn đúc có hình dạng
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Báo giá ban công nhôm đúc cập nhật mới nhất 2019](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## Báo giá ban công nhôm đúc cập nhật mới nhất 2019
+Ban công nhôm đúc có ưu điểm nổi bật về độ bền, tính thẩm mỹ. Click tham khảo báo giá ban công nhôm đúc chân không, chất lượng vượt trội.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KỸ THUẬT GIA CÔNG CƠ KHÍ](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## KỸ THUẬT GIA CÔNG CƠ KHÍ
+7 cắt gọt để chế tạo các chi tiết hoặc các kết cấu trong các máy móc hoặc các công trình công nghiệp. g. Người biên soạn: Nguyễn Anh Xuân - Bộ môn Công nghệ vật liệu h. Nội dung chi tiết học phần: TÊN CHƯƠNG MỤC PHÂN PHỐI SỐ TIẾT TS LT BT TH HD KT Chương 1. Khái niệm cơ bản về sản xuất đúc .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tìm hiểu về công nghệ đổ sàn bê tông giả đúc từ tấm xi măng](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## Tìm hiểu về công nghệ đổ sàn bê tông giả đúc từ tấm xi măng
+Công nghệ làm nên tấm xi măng làm sàn bê tông giả đúc. Cấu tạo chủ yếu của tấm xi măng cemboard chủ yếu là xi măng kết hợp cùng sợi dăm gỗ sẽ cho ra màu đen cùng bề mặt láng.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tổng quan về Công nghệ cán ống | Ống thép hàn và ống thép đúc](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## Tổng quan về Công nghệ cán ống | Ống thép hàn và ống thép đúc
+Khái niệm về Công nghệ cán ống: Cán ống là phương pháp tạo ống thép bằng phương pháp cán, giống như các loại hình cán khác (cán tấm, cán hình, cán bi, cán ren, cán bánh răng .), Cán ống cũng theo nguyên lí biến dạng dẻo kim loại giữa các trục cán. Phân loại Ống thép đúc và Ống thép hàn: Căn cứ vào công 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MẪU ĐÚC GANG, THÉP - Bài viết | Facebook](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## MẪU ĐÚC GANG, THÉP - Bài viết | Facebook
+Chuyên chế tạo tất cả các loại khuôn mẫu đúc từ nhỏ đến lớn phục vụ ngành đúc. Tự chủ 100% về công nghệ. +27. MẪU ĐÚC GANG, THÉP đã cập nhật ảnh đại diện của mình. 11 tháng 11, 2016 ·
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![CÔNG NGHỆ ĐÚC HẪNG](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## CÔNG NGHỆ ĐÚC HẪNG
+Đúc hẫng và lắp hẫng khác nhau cơ bản ở chỗ,đúc hẫng thì bê tông đổ tại chỗ trên đà giáo xe đúc và lắp hẫng thì bê tông được đúc thành từng đốt tại xưởng sau đó chở từng đốt ra công trường lắp.Ở Việt Nam công nghệ đúc hẫng phổ biến hơn(gọi tắt là công nghệ đúc hẫng),được áp dụng đa 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![VIP Cổng nhôm đúc Mỹ nghệ Vũ Chấn Khang - Khuôn mẫu thủ công](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## VIP Cổng nhôm đúc Mỹ nghệ Vũ Chấn Khang - Khuôn mẫu thủ công
+VIP Vũ Chấn Khang - Cổng nhôm đúc Mỹ nghệ Cao cấp với Khuôn mẫu đục thủ công sẽ cùng Bạn nâng tầm cho công trình đẳng cấp của Bạn!
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tiêu chuẩn Việt Nam TCVN 3809:1983 về Tài liệu công nghệ ](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## Tiêu chuẩn Việt Nam TCVN 3809:1983 về Tài liệu công nghệ 
+Xem, tra cứu và download Tiêu chuẩn Việt Nam TCVN 3809:1983 về Tài liệu công nghệ - Quy tắc trình bày tài liệu đúc
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tổng quan về công nghệ đúc áp lực - Tài liệu, Luận văn](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## Tổng quan về công nghệ đúc áp lực - Tài liệu, Luận văn
+II. TÌM HIỂU CHUNG VỀ CÔNG NGHỆ ĐÚC ÁP LỰC CAO. 1. Thế nào là đúc áp lực cao. Đúc áp lực cao là công nghệ trong đó kim loại lỏng điền đầy khuôn và đồng đặc dưới tác dụng của áp lực cao do d òng khí nóng hoặc dầu ép trong xilanh ép tạo ra.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Giới thiệu công nghệ in 3D sắc nét láng mịn trong đúc ](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## Giới thiệu công nghệ in 3D sắc nét láng mịn trong đúc 
+Hiện nay công nghệ in 3D sắc nét trong thiết kế tượng được "phủ sóng" rộng rãi trên thị trường. Tuy nhiên, việc lựa chọn được một đơn vị chuyên cung cấp các dịch vụ in 3D, đặc biệt về lĩnh vực đúc tượng không hề đơn giản.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

@@ -1,0 +1,45 @@
+# al rawas giữ asb nhóm salalah
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Al-Rawahi International | About Us](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## Al-Rawahi International | About Us
+Al Rawahi is an established name and enjoys a premier reputation for its efficiency and competence. Our range of activities covers the entire gamut of construction be it civil, electro-mechanical or plumbing works. Thanks to the backing of a dedicated, qualified and motivated work force and with the infra structure of plant & equipment at our 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Al Ahqaf Limited Mining Co Ll](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## Al Ahqaf Limited Mining Co Ll
+In 2013, it merged with, Al Rawas Cement Products LLC (manufactures and sale of modular blocks and kerbstones) and Al Ahqaf Ltd. Mining Co. LLC (engaged in manufacturing and sale of crusher material and sand). Salalah Ready Mix Co LLC - Infopages Oman. Salalah Readymix is a well established leader in Sultanate of Oman ready-mix concrete industry.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Our Team - Al Hashemi & Al Rawas Trading & Contracting Company](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## Our Team - Al Hashemi & Al Rawas Trading & Contracting Company
+Al Hashemi & Al Rawas Trading & Contracting Company Salalah. P.O Box: 1907, PC : 211 Salalah, Oman Tel: +968,, Fax : +968 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Our Dedicated Team - SAS SALALAH Projects for Construction LLC](https://github.com/technlg/images/blob/main/45.jpg)</a>
+## Our Dedicated Team - SAS SALALAH Projects for Construction LLC
+SAS SALALAH Projects for Construction LLC is the best Electrical, Civil, Mechanical and Telecommunication Company in Salalah Dhofar Oman with highly .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Staff - College of Applied Sciences, salalah](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Staff - College of Applied Sciences, salalah
+Our Mission: To provide high-quality programs that meet national and regional employment needs, prepare students for postgraduate studies and lifelong learning, equip them with the knowledge and skills necessary to excel as future professionals, and contribute to Oman's economy and society.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ahmed bin Abdulla S. Al-Rawas - Biography](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## Ahmed bin Abdulla S. Al-Rawas - Biography
+Currently, Ahmed bin Abdulla S. Al-Rawas occupies the position of Group Chairman at Salalah Ready Mix LLC and Chairman at Salalah Mills SAOG. He is also on the board of Dhofar Cattle Feed Co. and Al
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Board of Directors](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## Board of Directors
+He is a board member of Al Rawas Holding LLC, Salalah Flour Mills and Omani Packaging Co. SAOG. In addition he is Managing Director of Al Rasiyat Engineering M.E. LLC and Muscat Printing Press LLC. Further, he sits on the Audit and Human Resources Committee's of Kunooz and Salalah Mills and is Chairman of the Audit Committee at Omani Packaging.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ahmed bin Abdulla S. Al-Rawas - Biography](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## Ahmed bin Abdulla S. Al-Rawas - Biography
+Currently, Ahmed bin Abdulla S. Al-Rawas occupies the position of Group Chairman at Salalah Ready Mix LLC and Chairman at Salalah Mills SAOG. He is also on the board of Dhofar Cattle Feed Co. and Al Rawas Development & Investment Co. LLC.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Al Hashemi & Al Rawas Trad & Cont Co LLc - Home | Facebook](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## Al Hashemi & Al Rawas Trad & Cont Co LLc - Home | Facebook
+Al Hashemi & Al Rawas Trad & Cont Co LLc, Salalah, Oman. 1.4K likes. Construction Company
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sheikh Salim Abdullah Al Rawas - Kunooz Oman](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## Sheikh Salim Abdullah Al Rawas - Kunooz Oman
+Kunooz Brochure +968 2422 2600 / +968 2422 2601; info@kunoozoman
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Abdullah AL-Rawas - سلطنة عمان | ملف شخصي احترافي | LinkedIn](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## Abdullah AL-Rawas - سلطنة عمان | ملف شخصي احترافي | LinkedIn
+عرض ملف Abdullah AL-Rawas الشخصي على LinkedIn، أكبر شبكة للمحترفين في العالم. تمت إضافة معلومات تعليم Abdullah على الملف الشخصي. عرض الملف الشخصي الكامل على LinkedIn وتعرف على Abdullah زملاء ووظائف في الشركات المماثلة.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

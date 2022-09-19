@@ -1,0 +1,185 @@
+# axiontek máy móc xây dựng
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TỔNG HỢP từ vựng tiếng Nhật chuyên ngành Xây dựng](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## TỔNG HỢP từ vựng tiếng Nhật chuyên ngành Xây dựng
+Học ngay từ vựng tiếng Nhật chuyên ngành Xây dựng qua bài viết được tổng hợp dưới đây nhé! Sẽ rất hữu ích đối với các bạn đấy
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Một số máy móc xây dựng trong tiếng Trung](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## Một số máy móc xây dựng trong tiếng Trung
+Trung tâm Tiếng Trung SOFL chia sẻ với bạn đọc một số máy móc xây dựng thông dụng. Nếu bạn làm trong lĩnh vực xây dựng thì việc nâng cao các kiến thức tiếng Trung về xây dựng là rất hữu ích và cần thiết đấy.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mua bán và cho thuê giàn giáo máy móc xây dựng - ĐT ](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## Mua bán và cho thuê giàn giáo máy móc xây dựng - ĐT 
+Công ty TNHH TM & DV Xây Dựng Hoàn Mỹ là đơn vị chuyên cung cấp bán và cho thuê giàn giáo, thiết bị xây dựng, máy xây dựng ở Quy Nhơn nói riêng và các tỉnh thành khác trên cả nước. Rất hân hạnh đồng hành với Bạn và Quý công ty.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Thu mua máy móc cũ, mua thiết bị cơ khí, xây dựng, máy may ](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## Thu mua máy móc cũ, mua thiết bị cơ khí, xây dựng, máy may 
+Thu mua máy móc thiết bị công nghiệp, cơ khí, xây dựng, mua máy may cũ thanh lý giá cao. Công ty thu mua phế liệu Bảo Minh nhiều năm nay luôn thu mua máy móc thiết bị cũ giá cao cả nước. Chuyên thu mua máy móc thiết bị cũ, thu mua máy cơ khí, mua máy may công nghiệp, máy móc công nghiệp, máy móc xây dựng, thu mua mô tơ cũ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Những máy móc không thể thiếu trong xây dựng](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## Những máy móc không thể thiếu trong xây dựng
+Nov 28, 2017· Những máy móc không thể thiếu trong xây dựng. Máy bẻ đai sắt xây dựng; Loại máy bẻ đai sắt xây dựng này được sử dụng vào mục đích uốn, bẻ, cắt ra những thành phẩm theo các hình dạng khuôn sắt khác nhau. Với loại máy này các công trình sẽ giảm thiểu được nhân 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Nhập khẩu máy móc thiết bị phục vụ xây dựng công trình cho ](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## Nhập khẩu máy móc thiết bị phục vụ xây dựng công trình cho 
+Nhập khẩu máy móc thiết bị phục vụ xây dựng công trình cho DNCX Câu hỏi: 21682: DNCX (nhà đầu tư) ký hợp đồng xây dựng hệ thống phòng sạch với doanh .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MÁY MÓC VÀ THIẾT BỊ XÂY DỰNG VINACOMA3](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## MÁY MÓC VÀ THIẾT BỊ XÂY DỰNG VINACOMA3
+mÁy mÓc vÀ thiẾt bỊ xÂy dỰng vinacoma3,mÁy mÓc vÀ thiẾt bỊ xÂy dỰng vinacoma3,mÁy mÓc vÀ thiẾt bỊ xÂy dỰng vinacoma3. Đăng ký thành viên để được giá tốt nhất .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Máy móc xây dựng Đại Phước](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## Máy móc xây dựng Đại Phước
+Máy móc xây dựng Đại Phước. Quảng cáo mua bán máy móc công nghiệp, máy khò, máy uốn sắt, máy bơm cao áp hiệu quả và miễn phí tại 24hQuangCao.Com - Trang website đăng tin rao vặt máy móc công nghiệp chất lượng số 01 ở Hà Nội, TPHCM, Đà Nẵng .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![City House - Công ty Thiết kế & Xây dựng tại Đà Nẵng](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## City House - Công ty Thiết kế & Xây dựng tại Đà Nẵng
+City House được thành lập từ năm 2012 với đội ngũ kiến trúc sư, kỹ sư, họa viên kiến trúc với sự nhiệt huyết, tận tâm, có thâm niên trong lĩnh vực thiết kế kiến trúc, xây dựng các công trình dân dụng, dịch vụ và giải trí, công nghiệp.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Những Máy Móc Và Phát Minh Xây Dựng Đường Đỉnh Cao - .](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## Những Máy Móc Và Phát Minh Xây Dựng Đường Đỉnh Cao - .
+Jul 20, 2020· TÓM TẮT NHANH CHIẾN TRANH MÔNG NGUYÊN ĐẠI VIỆT LẦN 3-1288 BẠCH ĐẰNG GIANG NHUỘM MÁU QUÂN THÙ - Duration: 22:34. NanMin Răng 120,702 views
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Một số máy móc xây dựng trong tiếng Trung](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## Một số máy móc xây dựng trong tiếng Trung
+Trung tâm Tiếng Trung SOFL chia sẻ với bạn đọc một số máy móc xây dựng thông dụng. Nếu bạn làm trong lĩnh vực xây dựng thì việc nâng cao các kiến thức tiếng Trung về xây dựng .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sổ tay chọn Máy Thi Công Xây Dựng - Nguyễn Tiến Thụ](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## Sổ tay chọn Máy Thi Công Xây Dựng - Nguyễn Tiến Thụ
+Mar 26, 2015· Sổ tay chọn máy thi công xây dựng-Nguyến Tiến Thu Dung Tien TCVN 5574:2012 - Kết cấu Bê tông và Bê tông cốt thép - Tiêu chuẩn thiết kế
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![công ty bán máy móc xây dựng - Trang vàng](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## công ty bán máy móc xây dựng - Trang vàng
+Ngành nghề. công ty bán máy móc xây dựng (747). Nhóm sản phẩm. Giàn Giáo Xây Dựng Và Phụ Kiện (190). Xà Gồ Thép, Thép Hộp, Mạ Kẽm (138). Xe Công Trình, Máy Công Trình (102). Máy Xúc, Máy Đào, Máy ủi (90). Xe Cẩu, Xe Cần Cẩu (72). Cốp Pha Thép, Khuôn Đúc Bê Tông (64). Máy Cắt Sắt, Máy Uốn Sắt, Uốn Thép,..
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Nhân Viên Mua Bán Vật Tư, Quản Lý Máy Móc Thiết Bị Công ](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## Nhân Viên Mua Bán Vật Tư, Quản Lý Máy Móc Thiết Bị Công 
+Ứng tuyển ngay vị trí Nhân Viên Mua Bán Vật Tư, Quản Lý Máy Móc Thiết Bị Công Trình – tại công ty Công ty CP Xây dựng Thương mại Thới Bình! Mức lương: 10-12 triệu. Hạn nộp hồ sơ: .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Các loại máy móc thiết bị xây dựng - VINAMAC](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## Các loại máy móc thiết bị xây dựng - VINAMAC
+Phân loại máy móc xây dựng theo các nhóm sau: Mời bạn tìm hiểu thêm về phân loại và cấu tạo máy nghiền đá TẠI ĐÂY để hiểu rỏ hơn về sản phẩm này nhé.! Máy nghiền đá xây dựng Máy phát lực, máy động cơ : Đây là nhóm máy truyền hoặc biến đổi năng lượng.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![FURUKAWA UR-W104CRS Máy móc xây dựng khác 2017Y 5H .](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## FURUKAWA UR-W104CRS Máy móc xây dựng khác 2017Y 5H .
+Máy móc xây dựng khác Nhà sản xuất FURUKAWA Mẫu UR-W104CRS Năm 2017 Số giờ sử dụng 5 Địa điểm Tỉnh CHIBA, Nhật bản Số sêri 6F4 Hàng cũ/Hàng mới Hàng mới Hàng cũ
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Nhà Phân Phối máy móc thiết bị xây dựng UY TÍN #1 VN ](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## Nhà Phân Phối máy móc thiết bị xây dựng UY TÍN #1 VN 
+Máy cắt uốn sắt thép xây dựng. Máy cắt uốn sắt thép là dòng sản phẩm trong thiết bị máy xây dựng chuyên dụng không thể thiếu mà các nhà thầu phải đầu tư và là lựa chọn hàng đầu trong ngành xây dựng. Thiết bị này có kết cấu vững chắc tự động, chịu được va đập tốt, hoạt động bền bỉ mang lại 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Máy móc xây dựng Đại Phước](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## Máy móc xây dựng Đại Phước
+Máy móc xây dựng Đại Phước. Quảng cáo mua bán máy móc công nghiệp, máy khò, máy uốn sắt, máy bơm cao áp hiệu quả và miễn phí tại 24hQuangCao.Com - Trang website đăng tin rao vặt máy móc công nghiệp chất lượng số 01 ở Hà Nội, TPHCM, Đà Nẵng và trên toàn quốc, hàng trăm lượt xem mỗi ngày.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Máy Móc Xây Dựng Trang cá nhân | Facebook](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## Máy Móc Xây Dựng Trang cá nhân | Facebook
+Xem trang cá nhân của những người có tên là Máy Móc Xây Dựng. Tham gia Facebook để kết nối với Máy Móc Xây Dựng và những người khác bạn có thể biết.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tuyển dụng, tìm việc làm Xây Dựng tại Đồng Nai - 09/2020 ](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## Tuyển dụng, tìm việc làm Xây Dựng tại Đồng Nai - 09/2020 
+CÔNG TY TNHH MTV MÁY MÓC NAM ANH. Đồng Nai. Cần tuyển 2 nam kỹ sư xây dựng chịu làm việc theo công trình (Đồng nai, Bình Dương, Long Thành), tốt .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Vệ sinh sua xây dựng Tphcm - Vệ sinh nhà ở 5SPRO](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## Vệ sinh sua xây dựng Tphcm - Vệ sinh nhà ở 5SPRO
+Sau xây dựng, kiến trúc, nội thất, thì vệ sinh công nghiệp, vệ sinh sau xây dựng là bước quan trọng cuối cùng để dọn dẹp sạch sẽ ngôi nhà của bạn
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![15 mẫu máy móc thiết bị trong ngành xây dựng bê tông buộc ](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## 15 mẫu máy móc thiết bị trong ngành xây dựng bê tông buộc 
+Xem ngay chi tiết +15 loại máy móc thiết bị trong ngành xây dựng bê tông buộc phải có để có thể thi công công trình một cách nhanh chóng và tiện lợi.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![hình ảnh : cát, xây dựng, Xe, Đất, máy móc, vật chất ](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## hình ảnh : cát, xây dựng, Xe, Đất, máy móc, vật chất 
+tải hình ảnh : cát, xây dựng, Xe, Đất, máy móc, vật chất, chiếc xe ủi, Địa chất, Tôi, Mỏ đá, Wadi, khai thác mỏ, Thiết bị xây 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sản phẩm: Máy móc thiết bị ngành xây dựng](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## Sản phẩm: Máy móc thiết bị ngành xây dựng
+Sản phẩm: Danh sách công ty nhập khẩu và cung cấp máy móc thiết bị cho ngành xây dựng tại Việt Nam. Danh mục sản phẩm máy móc phục vụ xây dựng đang chào bán và .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Quy chuẩn kỹ thuật quốc gia QCVN 18:2014/BXD về An toàn ](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Quy chuẩn kỹ thuật quốc gia QCVN 18:2014/BXD về An toàn 
+1.4.2Người lao động: là người đang làm việc trong công trường hoặc cơ sở sản xuất của ngành Xây dựng. 1.4.3Xe máy xây dựng: là các phương tiện vận chuyển cơ giới và các trang thiết bị phục vụ thi công xây lắp tại các công trình xây dựng. 2 Quy định về kỹ thuật
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![máy móc xây dựng ở tại bình dương](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## máy móc xây dựng ở tại bình dương
+máy móc xây dựng. Công Ty TNHH MTV Gia Công Cơ Khí Vượng Lai chuyên cung cấp máy móc xây dựng. Hãy gọi (0274), hoặc thông tin liên hệ phía bên dưới để biết thông tin về máy móc xây dựng, mua bán và báo giá máy móc xây dựng
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![THIẾT BỊ / MÁY MÓC / DỤNG CỤ XÂY DỰNG](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## THIẾT BỊ / MÁY MÓC / DỤNG CỤ XÂY DỰNG
+Cung cấp Tư vấn thi công lắp đặt thiết bị máy móc Dụng cụ xây dựng các loại Máy xây dựng Dụng cụ cầm tay Máy móc đo đạc Xe 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Máy móc thiết bị xây dựng - CÔNG TY CỔ PHẦN THIẾT BỊ XÂY ](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## Máy móc thiết bị xây dựng - CÔNG TY CỔ PHẦN THIẾT BỊ XÂY 
+Máy móc thiết bị xây dựng do gia phan cung cấp gồm có máy phun vữa, trộn vữa và bơm bữa. Lựa chọn gia phan sẽ là sự lựa chọn chính xác nhất. 091.406.3739 - 091.123.3443. info@giaphanco.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cho Thuê Máy Móc Thiết Bị Xây Dựng](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## Cho Thuê Máy Móc Thiết Bị Xây Dựng
+Thuê các thiết bị xây dựng là một giải pháp thông minh và tiết kiệm cho các doanh nghiệp hiện nay. Thay vì trang bị máy móc, vật tư, thiết bị xây dựng, các chủ doanh nghiệp sẽ tiết kiệm được một khoản chi phí đầu tư khổng lồ nhờ vào các dịch vụ cho thuê thiết bị xây dựng.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sản phẩm: Máy móc thiết bị ngành xây dựng](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## Sản phẩm: Máy móc thiết bị ngành xây dựng
+Sản phẩm: Danh sách công ty nhập khẩu và cung cấp máy móc thiết bị cho ngành xây dựng tại Việt Nam. Danh mục sản phẩm máy móc phục vụ xây dựng đang chào bán và tìm đại lý phân phối.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Máy móc - thiết bị công trình sử dụng trong lĩnh vực xây dựng](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## Máy móc - thiết bị công trình sử dụng trong lĩnh vực xây dựng
+Để hoàn thành bất cứ một công trình xây dựng, nhà máy, kho xưởng.thì nhất định phải có sự hỗ trợ của các loại máy móc thiết bị công trình xây dựng chuyên dụng. Mỗi thiết bị sẽ có chức năng riêng nhằm đáp ứng công việc tại công trường mang đến sự an toàn và hiệu quả hơn hết.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KOMATSU BR300S-1 Máy móc xây dựng khác 2001Y 4860H | Bán ](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## KOMATSU BR300S-1 Máy móc xây dựng khác 2001Y 4860H | Bán 
+Hàng cũ 4860giờ KOMATSU BR300S-1 Máy móc xây dựng khác | Bán Máy Xây Dựng Đã Qua Sử Dụng, Xe Cộ, và Máy Nông Nghiệp | ALLSTOCKER
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Máy móc xây dựng : Hitachi Việt Nam](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## Máy móc xây dựng : Hitachi Việt Nam
+Máy móc xây dựng. Tiến bộ vượt bậc. Khi dân số thế giới tăng, các thành phố tiếp tục mở rộng - cả về chiều rộng và chiều sâu. Xây dựng bền vững đóng vai trò then chốt trong sự tăng trưởng đó. Và Hitachi luôn đi đầu trong xu hướng bùng nổ này, giúp định hình 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Xây dựng hệ thống máy móc cho xưởng vừa nhỏ](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## Xây dựng hệ thống máy móc cho xưởng vừa nhỏ
+Xây dựng hệ thống máy móc cho xưởng làm mộc vừa và nhỏ đòi hỏi những hiểu biết căn bản tư quy mô sản xuất đế sản phẩm làm ra, không những vậy nó còn phụ thuộc nhiều vào tính cách, sở thích của người đầu tư, xưởng làm mộc không gì khác chính là sự phản ánh bộ mặt và tính cách chủ nhân của nó
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Lạc Hồng - Máy móc thiết bị xây dựng](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## Lạc Hồng - Máy móc thiết bị xây dựng
+Máy xây dựng Lạc Hồng chuyên cung cấp sản phẩm máy xây dựng chính hãng, dịch vụ cho thuê máy xây dựng chất lượng giá cả tốt nhất tại Việt Nam
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Máy Xây Dựng Siêu Việt](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## Máy Xây Dựng Siêu Việt
+Máy xây dựng Siêu Việt, Cung Cấp - Cho Thuê - Sửa Chữa các loại máy xây dựng và công cụ hỗ trợ. Máy bẻ đai sắt, máy uốn sắt, máy cắt sắt, máy duỗi cắt sắt, vận thăng nâng hàng, máy phun vữa,.với đầy đủ chủng loại và công xuất, máy móc chất lượng, giá cả cạnh tranh, vận chuyển toàn quốc
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Những máy móc không thể thiếu trong xây dựng](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## Những máy móc không thể thiếu trong xây dựng
+Những máy móc không thể thiếu trong xây dựng. Máy bẻ đai sắt xây dựng; Loại máy bẻ đai sắt xây dựng này được sử dụng vào mục đích uốn, bẻ, cắt ra những thành phẩm theo các hình dạng khuôn sắt khác nhau. Với loại máy này các công trình sẽ giảm thiểu được nhân 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![34 loại máy công trình được dùng nhiều trong xây dựng ở ](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## 34 loại máy công trình được dùng nhiều trong xây dựng ở 
+Bài viết này Phutungxaydung đi tổng hợp và phân loại các loại máy xây dựng thông dụng ở Việt Nam. Gồm 34 loại máy công trình tất cả. Máy xây dựng bao gồm tất cả các loại máy, thiết bị dùng để thực hiện các công việc xây dựng thay thế sức người.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Quyết định 5477/QĐ-UBND công bố Bảng giá ca máy và thiết ](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Quyết định 5477/QĐ-UBND công bố Bảng giá ca máy và thiết 
+Máy móc và thiết bị thi công lập đơn giá khảo sát xây dựng không tính thành phần chi phí tiền lương thợ điều khiển trong bảng giá ca máy đã được tính trong chi phí nhân công của Đơn giá xây dựng công trình – Phần khảo sát xây dựng.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tổng hợp thư viện autocad đầy đủ cho bản vẽ xây dựng ](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## Tổng hợp thư viện autocad đầy đủ cho bản vẽ xây dựng 
+Trong bài viết này Phanmemaz sẽ tổng hợp thư viện block autocad thường dùng trong ngành xây dựng với nhiều chủ đề như: xe cộ, cây cối, con người, nội thất, máy móc thi công, cửa,..Các bạn bấm vào nút download để tải về nhé. 1. Thư viện autocad 1 (4.31 MB)
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tiếng anh xây dựng - Các thiết bị máy móc xây dựng | KÊNH ](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## Tiếng anh xây dựng - Các thiết bị máy móc xây dựng | KÊNH 
+Tiếng anh xây dựng - Các thiết bị máy móc xây dựng. Thảo luận trong 'Tài liệu học tiếng anh' bắt đầu bởi Diễn đàn Kenhxaydung.vn, 22 Tháng chín 2015.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Máy Xây Dựng Thăng Long » Chính hãng, Chất Lượng, Giá rẻ](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## Máy Xây Dựng Thăng Long » Chính hãng, Chất Lượng, Giá rẻ
+Máy xây dựng nhập khẩu, Thăng Long JSC nhà cung cấp các loại máy và thiết bị xây dựng hàng đầu Việt Nam, máy xây dựng chính hãng chất lượng, giá rẻ nhất. Máy xây dựng. Hotline. 0969.623.286 0911.483.286. Menu.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![CHO THUÊ MÁY MÓC XÂY DỰNG](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## CHO THUÊ MÁY MÓC XÂY DỰNG
+cho thuÊ mÁy mÓc xÂy dỰng. giÀn giÁo thiẾt bỊ 100% nhẬp khẨu trỰc tiẾp tỪ nhẬt bẢn.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Báo giá, mua bán, kinh doanh các loại máy móc thi công xây ](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## Báo giá, mua bán, kinh doanh các loại máy móc thi công xây 
+Mxaydung.vn là đơn vị chuyên kinh doanh, mua bán các loại máy móc thi công xây dựng nhập khẩu. Báo giá cạnh tranh nhất thị trường.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MÁY MÓC CƠ KHÍ XÂY DỰNG](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## MÁY MÓC CƠ KHÍ XÂY DỰNG
+MÁY MÓC CƠ KHÍ XÂY DỰNG. TIỆN MINI HASEGAWA - NHẬT. Giá: Liên h  Máy cắt sắt loại cơ 25mm OGURA 230V mới. Giá: Liên h 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Máy móc xây dựng Archives - Keyweb Demo | Keyweb Demo](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## Máy móc xây dựng Archives - Keyweb Demo | Keyweb Demo
+Máy móc xây dựng. Máy cắt hơi; Dụng cụ dùng xăng; Máy cắt Plasma; Máy cắt gạch đá; Nhôm kính xây dựng. Bản lề nhôm; Tay nắm cửa; Thanh chuyển động; Cửa kính cường lực; Vật liệu thô. Bê tông, vữa xây dựng; Hệ thống lưới; Sắt thép xây dựng; Sỏi xây dựng; Giới 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

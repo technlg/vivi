@@ -1,0 +1,129 @@
+# bscpl công ty wikipedia ppt
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Johnson & Johnson Homepage | Johnson & Johnson](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## Johnson & Johnson Homepage | Johnson & Johnson
+For over 130 years, Johnson & Johnson has maintained a tradition of quality and innovation. Learn about the products, people and history that make up our company.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Thư viện Bài giảng điện tử - Violet](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## Thư viện Bài giảng điện tử - Violet
+Đơn vị chủ quản: Công ty Cổ phần Mạng giáo dục Bạch Kim - ĐT: 04. Giấy phép mạng xã hội số 16/GXN-TTĐT cấp ngày 13 tháng 2 năm 2012 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SERVQUAL – Wikipedia tiếng Việt](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## SERVQUAL – Wikipedia tiếng Việt
+SERVQUAL là một công cụ nghiên cứu đa chiều (ví dụ bao gồm bảng câu hỏi hoặc thang đo lường) được thiết kế để đo lường chất lượng dịch vụ bằng cách nắm bắt những mong đợi và nhận thức của người tiêu dùng dựa trên năm chiều chất lượng dịch vụ. .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BCPL](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## BCPL
+BCPL ("Basic Combined Programming Language") is a procedural, imperative, and structured programming language.Originally intended for writing compilers for other languages, BCPL is no longer in common use. However, its influence is still felt because a stripped down and syntactically changed version of BCPL, called B, was the language on which the C programming language was based.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Công ty cổ phần FPT](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## Công ty cổ phần FPT
+Công ty cổ phần FPT Quý khách vui lòng cập nhật trình duyệt mới nhất (phiên bản IE 10) hoặc dùng trinh duyệt chrome hay firefox truy cập Website tâp đoàn FPT. Xin cảm ơn quý khách!
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Android (hệ điều hành) – Wikipedia tiếng Việt](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## Android (hệ điều hành) – Wikipedia tiếng Việt
+Android là một hệ điều hành dựa trên nền tảng Linux được thiết kế dành cho các thiết bị di động có màn hình cảm ứng như điện thoại thông minh và máy tính bảng.Ban đầu, Android được phát triển bởi Android, Inc. với sự hỗ trợ tài chính từ Google và sau này được chính Google mua lại vào năm 2005.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Công ty TNHH P.A Việt Nam | Trung Tâm Internet Việt Nam ](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## Công ty TNHH P.A Việt Nam | Trung Tâm Internet Việt Nam 
+- Địa chỉ: 196 Nguyễn Đình Chiểu, Phường 6, Quận 3, TP Hồ Chí Minh - Điện thoại/Fax: + 3737 - /+ 648
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Home - Mowi Company Website](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Home - Mowi Company Website
+Caring makes us profitable. Mowi ASA is the world's leading seafood company, and the world's largest producer of Atlantic salmon. The company employs 14 537 people, and is represented in 25 countries.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Startup company](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## Startup company
+Startup actions. Startups typically begin by a founder (solo-founder) or co-founders who have a way to solve a problem. The founder of a startup will begin market validation by problem interview, solution interview, and building a minimum viable product (MVP), i.e. a prototype, to develop and validate their business models.The startup process can take a long period of time (by some estimates 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Waymo](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## Waymo
+Waymo LLC is an American autonomous driving technology development company. It is a subsidiary of Alphabet Inc, the parent company of Google.Waymo operates a commercial self-driving taxi service in Phoenix, Arizona called "Waymo One"; users in the Phoenix metropolitan area use an app to request a pick-up. As of November 2019, Waymo offered the only commercial self-driving car service that 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Google Dịch](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## Google Dịch
+Dịch vụ miễn phí của Google dịch nhanh các từ, cụm từ và trang web giữa tiếng Việt và hơn 100 ngôn ngữ khác.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Trouw Nutrition](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## Trouw Nutrition
+Trouw Nutrition is the global leader in innovative feed specialities, premixes and nutritional services for the animal nutrition industry
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Highlands Coffee](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## Highlands Coffee
+Highlands Coffee - Thương Hiệu Cà Phê Tự Hào Sinh Ra Từ Đất Việt
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Công nghiệp 4.0 – Wikipedia tiếng Việt](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## Công nghiệp 4.0 – Wikipedia tiếng Việt
+Công nghiệp 4.0 đang giúp các công ty dễ dàng hợp tác và chia sẻ dữ liệu giữa các khách hàng, nhà sản xuất, nhà cung cấp và các bên khác trong chuỗi cung ứng. Nó cải thiện năng suất và khả năng cạnh tranh, cho phép chuyển đổi sang nền kinh tế kỹ thuật số và .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bạn gái tôi là Hồ ly – Wikipedia tiếng Việt](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## Bạn gái tôi là Hồ ly – Wikipedia tiếng Việt
+Bạn gái tôi là Hồ ly (Hangul: 내 여자친구는 구미호; Romaja: Nae Yeojachinguneun Gumiho; là một bộ phim hài tình cảm Hàn Quốc 2010 với sự tham gia của Lee Seung Gi và Shin Min-ah. Phim chiếu trên kênh SBS từ ngày 11 tháng 8 đến 30 tháng 9 năm 2010 vào mỗi thứ tư và 5 lúc 21:55 gồm 16 tập. 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Thương mại điện tử – Wikipedia tiếng Việt](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## Thương mại điện tử – Wikipedia tiếng Việt
+2011: Quidsi, công ty cha của Diapers, được mua lại bởi Amazon với 500 triệu USD tiền mặt cộng với 45 triệu nợ và các nghĩa vụ khác. GSI Commerce, công ty chuyên tạo ra, phát triển và thực thi trang web mua sắm trực tuyến cho dịch vụ gạch và vữa trong kinh doanh, được mua lại bởi eBay với 2.4 tỉ USD.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Trang bị Quân đội nhân dân Việt Nam – Wikipedia tiếng Việt](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## Trang bị Quân đội nhân dân Việt Nam – Wikipedia tiếng Việt
+Hoa Kỳ: USS Chelan County (LST-542) 1 1,651 tấn lúc rỗng, 4,145 tấn lúc đầy 100 x15,2 x3 (rỗng), 100 x15,2 x6,78 (đầy) 2 General Motors 12-567 động cơ diesel, hai trục, bánh lái đôi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PTSC Offshore Services](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## PTSC Offshore Services
+Công bố biên bản & nghị quyết cuộc họp Đại hội đồng cổ đông thường niên 2020 Cập nhật nội dung tài liệu Đại hội đồng cổ đông thường niên 2020 Đảng bộ Công ty POS đã tổ chức thành công Đại hội đại biểu Đảng bộ lần thứ IV, nhiệm kỳ 2020 – 2025
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Windows Server 2008 R2 – Wikipedia tiếng Việt](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## Windows Server 2008 R2 – Wikipedia tiếng Việt
+Windows Server 2008 R2 là một hệ điều hành cho máy chủ của Microsoft.Nó được đưa vào sản xuất đại trà (RTM) vào ngày 22 tháng 7 năm 2009 và tung ra thị trường vào ngày 22 tháng 10 năm 2009. Theo blog Windows Server Team, sản phẩm bán lẻ bắt đầu được bán từ ngày 14 tháng 9 năm 2009. Windows Server 2008 R2 được xây dựng 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Corning Inc.](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## Corning Inc.
+Corning Glass Works was founded in 1851 by Amory Houghton, in Somerville, Massachusetts, originally as the Bay State Glass Co.It later moved to Williamsburg, Brooklyn, New York, and operated as the Brooklyn Flint Glass Works.The company moved again to its ultimate home and namesake, the city of Corning, New York, in 1868 under leadership of the founder's son, Amory Houghton, Jr.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mã Hóa Đằng – Wikipedia tiếng Việt](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## Mã Hóa Đằng – Wikipedia tiếng Việt
+Mã Hóa Đằng (tiếng Trung: ; bính âm: Mǎ Huàténg; sinh ngày 29 tháng 10 năm 1971), còn có biệt hiệu là Pony Ma, là một ông trùm kinh doanh Trung Quốc, nhà đầu tư, nhà từ thiện, kỹ sư, nhà doanh nghiệp về Internet và công nghệ. Ông là người sáng lập, chủ tịch và giám đốc điều hành của Tencent, công ty có giá 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PPG: We Protect & Beautify The World. Paints, .](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## PPG: We Protect & Beautify The World. Paints, .
+We work every day to develop and deliver the paints, coatings and materials that our customers have trusted for more than 130 years.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TH true MILK – True Happiness](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## TH true MILK – True Happiness
+Cơ quan chủ quản: Công ty Cổ phần Chuỗi Thực phẩm TH Trụ sở: 166 Nguyễn Thái Học, P. Quang Trung, TP. Vinh, Nghệ An – Điện thoại: MST: - Số ĐKKD: cấp ngày 06/09/2010 bởi Sở KH và ĐT tỉnh Nghệ An
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![List of legal entity types by country](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## List of legal entity types by country
+A business entity is an entity that is formed and administered as per corporate law in order to engage in business activities, charitable work, or other activities allowable. Most often, business entities are formed to sell a product or a service. [citation needed] There are many types of business entities defined in the legal systems of various countries.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Wikipedia](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## Wikipedia
+Wikipedia is a free online encyclopedia, created and edited by volunteers around the world and hosted by the Wikimedia Foundation.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BSCPL](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## BSCPL
+BSCPL Infrastructure Ltd., formerly known as B.Seenaiah & Company (Projects) Limited was promoted by Sri Bollineni Krishnaiah and his family. He fixed his vision with a mission to construct quality roads. He has drawn his strength from the dedicated team of Human Capital. His team consists of experts from Engineering, Finance and Management skills.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![WPS Office – Wikipedia tiếng Việt](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## WPS Office – Wikipedia tiếng Việt
+WPS Office (viết tắt của Writer, Presentation và Spreadsheets, trước đây được gọi là Kingsoft Office) là một bộ ứng dụng văn phòng cho Microsoft Windows, Linux, iOS và Android, phát triển bởi Kingsoft một công ty phần mềm Trung Quốc có trụ sở ở Châu Hải.WPS Office là một bộ phần mềm với ba ứng dụng chính: WPS Writer, WPS 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![EY - US | Building a better working world](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## EY - US | Building a better working world
+EY provides consulting, assurance, tax and transaction services that help solve our client's toughest challenges and build a better working world for all.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sumitomo Corporation](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## Sumitomo Corporation
+Sumitomo Corporation Group conducts business activities in a wide range of industries on a global scale, with its six business units include Metal Products, Transportation and Construction Systems, Infrastructure, Media and Digital, Living Related and Real Estate, Mineral Resources, Energy, and Chemical and Electronics and regional organizations all over the world working closely together.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BSCPL](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## BSCPL
+BSCPL have executed several prestigious projects across India and abroad including Afghanistan & Bangladesh, sometimes under adverse conditions. The experienced and visionary team of promoters, high degree of mechanization with skills in the state of the art technology, 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Types of production processes - LinkedIn SlideShare](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Types of production processes - LinkedIn SlideShare
+Bài tiểu luận về công ty Bibica Lanh Chanh. تقنيات تطبيق 6 سيجما BAHAA ELKADY. 5S خمس خطوات لتحسين وتنظيم بيئة العمل Hussain Yasin Al-Ahmed. English Español Português Français 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tổng hợp Hình nền-Template-mẫu Slide PowerPoint đẹp nhất-Free](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## Tổng hợp Hình nền-Template-mẫu Slide PowerPoint đẹp nhất-Free
+PowerPoint Đẹp nhất dành cho Thiết kế PowerPoint, Làm phim, Thuyết trình, Giáo án, Giáo trình phù hợp Office 2010 - 2007 - 2003
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

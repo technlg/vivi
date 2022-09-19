@@ -1,0 +1,41 @@
+# biểu đồ dòng quá trình boroyeur bmford
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Biểu đồ](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## Biểu đồ
+Hình 8 Biểu đồ tròn thể hiện doanh số 4 quý của công ty X. Qua đó ta thấy biểu đồ tròn cho ta thấy mức độ đóng góp của mỗi phần vào tổng thể, từ đó có thể so sánh, đối chiếu vai trò của mỗi phần (một cách tương đối). Tuy vậy, về mặt so sánh, đối chiếu các 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Biểu trưng gỗ đồng - Đồ đồng quà tặng](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## Biểu trưng gỗ đồng - Đồ đồng quà tặng
+Biểu trưng gỗ đồng - Đồ đồng quà tặng - Biểu trưng gỗ đồng là sự kết hợp tinh tế giữa hai nguyên liệu, mọi mẫu mã đều có thể chế tác quà tặng đối tác
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Biểu đồ dạng đồng hồ đo vận tốc – Trình bày số liệu một ](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Biểu đồ dạng đồng hồ đo vận tốc – Trình bày số liệu một 
+Chia sẻ bài viết này: TweetTrong bài viết này, Học Excel Online sẽ giới thiệu với bạn về biểu đồ dạng đồng hồ đo vận tốc, một khái niệm vô cùng phổ biến trong ngành công nghiệp ô tô. Bước 1: Truy cập Google Sheets theo địa chỉ tại đây. Click vào nút "Go to Google Sheets" Bước 2: .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Biểu đồ và đồ thị thống kê | Quantri.vn](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## Biểu đồ và đồ thị thống kê | Quantri.vn
+Khác với bảng thống kê, đồ thị hay biểu đồ thống kê sử dụng các số liệu kết hợp với hình vẽ, đường nét hay màu sắc để tóm tắt và trình bày các đặc trưng chủ yếu của hiện tượng nghiên cứu, phản ánh một cách khái quát các đặc điểm về cơ cấu, xu hướng biến động, mối liên hệ, quan hệ so 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hướng dẫn cách vẽ biểu đồ cột kết hợp đường biểu diễn trên ](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## Hướng dẫn cách vẽ biểu đồ cột kết hợp đường biểu diễn trên 
+Hướng dẫn cách vẽ biểu đồ cột kết hợp đường biểu diễn % trên Excel. Biểu đồ có 2 trục tung trên cùng 1 hệ trục tọa độ. Cách vẽ biểu đồ hỗn hợp trong Excel
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Biểu trưng gỗ đồng,đĩa đồng ăn mòn,kỷ niệm chương,cúp đồng](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## Biểu trưng gỗ đồng,đĩa đồng ăn mòn,kỷ niệm chương,cúp đồng
+Biểu trưng gỗ đồng là sự kết hợp hoàn hảo và hài hòa giữa hai sản phẩm chính là gỗ và đồng. Sản phẩm được dùng cho các ngày kỷ niệm, sự kiện, dịp lễ lớn, hội nghị hoặc các lễ trao giải mang tính chất quan trọng. Tại Đồ ĐỒng Việt nhận làm biểu trưng gỗ đồng là sản phẩm quà tặng, quà lưu 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Biểu đồ đồng](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## Biểu đồ đồng
+Biểu đồ đồng . Thông báo nghỉ lễ 2-9 Cty Thành Công. Cty Thành Công xin trân trọng thông báo đến quý khách hàng và toàn bộ cán bộ công nhân viên lịch nghỉ trong dịp lễ quốc khánh 2-9 như sau: Bộ phận kinh doanh phân phối vật tư cơ khí và bánh xe nghỉ .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tài liệu Biểu đồ Môi Trường chọn lọc](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## Tài liệu Biểu đồ Môi Trường chọn lọc
+Bài 6 làm việc với biểu đồ (Charts) thuộc bộ bài giảng Microsoft office excel 2010 trình bày nội dung về: Tạo một biểu đồ cơ bản; di chuyển và thay đổi kích thước biểu đồ; thay đổi loại biểu đồ; làm việc với Pie charts; thay đổi charts layout; sử dụng sparkline; in biểu đồ. Mời các bạn theo dõi. 0p tranhanh9196 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Vẽ một số biểu đồ thông dụng](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## Vẽ một số biểu đồ thông dụng
+Hình 6 Một số biểu đồ tần số với các đối số khác nhau của hàm hist. Qua đoạn lệnh trên và Hình 6 ta có các nhận xét sau: Ba dòng đầu tiên được dùng để tạo tập hợp số x. Dòng thứ tư vẽ biểu đồ với duy nhất đối số bắt buộc x (Hình 6a).
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Biểu đồ Xương Cá – Công cụ phân tích nguyên nhân và giải ](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## Biểu đồ Xương Cá – Công cụ phân tích nguyên nhân và giải 
+Biểu đồ xương cá là gì? – Được xem là 1 trong 7 công cụ cơ bản của Quản lý chất lượng, bao gồm Histogram, ParetoChar, checksheet, control chart, Flowchart và scatter diagram. – Nó được gọi là xương cá vì biểu đồ này có hình dạng giống xương cá. Mục đích
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

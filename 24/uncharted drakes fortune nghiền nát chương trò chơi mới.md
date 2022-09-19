@@ -1,0 +1,25 @@
+# uncharted drakes fortune nghiền nát chương trò chơi mới
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Uncharted: Drake's Fortune - YouTube](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## Uncharted: Drake's Fortune - YouTube
+Jul 01, 2014· Uncharted: Drake's Fortune Walkthrough Part 21: On the Trail of the Treasure by SSoHPKC. 13:00. Uncharted: Drake's Fortune Walkthrough Part 22: Heart is the Key by SSoHPKC. 10:10.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Uncharted: Drake's Fortune cuộc phiêu lưu bắt đầu vào 20 ](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## Uncharted: Drake's Fortune cuộc phiêu lưu bắt đầu vào 20 
+Theo những thông tin mới nhất được tung ra từ đầu tháng 10 này, game Uncharted: Drake's Fortune được thực hiện bởi Naughty Dog đang trong giai đoạn chơi thử nghiệm, kiểm tra các lỗi cuối cùng trước khi tung ra thị trường.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Uncharted: Drake's Fortune](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## Uncharted: Drake's Fortune
+Uncharted: Drake's Fortune is a 2007 action-adventure game developed by Naughty Dog and published by Sony Computer Entertainment.It is the first game in the Uncharted series, and was released in November 2007 for PlayStation 3.Combining action-adventure and platforming elements with a third-person perspective, the game follows Nathan Drake, the supposed .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Đan Thần Trở Về - Chương 1754: Một đòn - Truyện Của Tui](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## Đan Thần Trở Về - Chương 1754: Một đòn - Truyện Của Tui
+Chương 1754: Một đòn; settings share.  kia bốn đạo phong trụ vừa mới chạm được Đại Cắt Thuật, liền bị trực tiếp nghiền nát, to Đại Cắt lực, giống như là lưỡi đao sắc bén, có thể nát bấy Thiên Địa Vạn Vật. 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Có nên chơi lại các bản Uncharted cũ trước lúc tham gia ](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Có nên chơi lại các bản Uncharted cũ trước lúc tham gia 
+Trái lại, Uncharted: Drake Fortune, Uncharted 2: Among Thieves và Uncharted 3: Drake Deception diễn ra theo thứ tự thời gian. Các câu chuyện trong các phiên bản kể trên được viết theo cách để khiến bạn không cần chơi những phiên bản .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Uncharted: Drake's Fortune Treasure Guide (Part 2) - YouTube](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## Uncharted: Drake's Fortune Treasure Guide (Part 2) - YouTube
+Oct 23, 2009· Uncharted Drake's Fortune Chapter 16 - The Treasure Vault - Duration: 8:42. king1048 447,236 views. 8:42. 18 Minutes of Ghost of Tsushima Gameplay (Full 4K Presentation) - Duration: 18:41. IGN 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

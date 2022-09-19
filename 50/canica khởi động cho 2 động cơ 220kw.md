@@ -1,0 +1,169 @@
+# canica khởi động cho 2 động cơ 220kw
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hướng dẫn lựa chọn khởi động mềm - Công ty TNHH Thương .](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## Hướng dẫn lựa chọn khởi động mềm - Công ty TNHH Thương .
+– Động cơ nào nên dùng khởi động mềm: Những động cơ có công suất lớn hơn hoặc bằng 7.5 kW nên dùng khởi động mềm để tăng tuổi thọ cho động cơ và tránh hư hại các thiết bị điện khác. 2.  2200HFFA 220KW Without DCL 3PHA 208,260,975 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Khởi động mềm Chint NJR2-220D - Tủ điện](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## Khởi động mềm Chint NJR2-220D - Tủ điện
+Khởi động mềm Chint NJR2-220D Khởi động mềm Chint NJR2-220D là sản phẩm Khởi động mềm cao cấp của hãng Chint Được sản xuất bởi hãng thiết bị điện Chint – Trung Quốc Tiêu chuẩn: IEC/EN / IEC/EN Chức năng bảo vệ: khởi động dùng bộ biến đổi điện áp xoay chiều để điều khiển điện áp stato 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cảng Gemalink tái khởi động tháng 2/2019: Cơ hội và thách ](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## Cảng Gemalink tái khởi động tháng 2/2019: Cơ hội và thách 
+Cảng Gemalink tái khởi động tháng 2/2019: Cơ hội và thách thức cho "trâu chậm" Tái khởi động sau 7 năm công bố giãn tiến độ đầu tư, cảng Gemalink, một trong những bến cảng container quy mô nhất cụm cảng Cái Mép - Thị Vải, được cho là đang có nhiều cơ hội nhưng cũng không hẳn là .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bộ khởi động mềm Soft Starter Schneider Electric – IBB](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## Bộ khởi động mềm Soft Starter Schneider Electric – IBB
+BỘ KHỞI ĐỘNG MỀM ĐỘNG CƠ ĐIỆN CỦA SCHNEIDER ELECTRIC. Quý khách có nhu cầu mua bất kỳ một mã hàng thiết bị khởi động điều khiển động cơ điện của SCHNEIDER ELECTRIC, xin vui lòng liên hệ với chúng tôi.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Các phương pháp khởi động động cơ | Nam Trung](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## Các phương pháp khởi động động cơ | Nam Trung
+Các phương pháp khởi động động cơ điện 3 pha: Mở máy trực tiếp động cơ điện không đồng bộ roto lồng sóc: đây được xem là phương pháp đơn giản nhất. khi mở máy trực tiếp,dòng điện mở máy lớn, nếu quán tính của tải lớn dẫn đến thời gian mở máy kéo dài, có thể làm động cơ điện phát nóng 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tủ điều khiển động cơ 150KW](https://github.com/technlg/images/blob/main/45.jpg)</a>
+## Tủ điều khiển động cơ 150KW
+Trực tiếp sản xuất và phân phối Giá thành tốt nhất! Miễn phí tư vấn 24/7 Miễn phí lắp đặt Bảo hành: 12 tháng Vận chuyển: Miễn phí vận chuyển nội thành Hà Nội.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tủ khởi động sao tam giác | tu khoi dong sao tam giac](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## Tủ khởi động sao tam giác | tu khoi dong sao tam giac
+Đối với các động cơ có công suất từ 15kw trở lên nên chọn hình thức khởi động bằng phương pháp đổi nối Sao/Tam giác để : + Giảm dòng khởi động của động cơ. +Giảm hiện tượng sụt áp cho nguồn điện. + Tăng độ bền của các động cơ, các thiết bị bảo vệ và 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Dùng inverter khởi động mềm cho động cơ 2 tốc độ](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## Dùng inverter khởi động mềm cho động cơ 2 tốc độ
+· Dùng inverter khởi động mềm cho động cơ 2 tốc độ If this is your first visit, be sure to check out the FAQ by clicking the link above. You may have to register before you can post: click the register link above to proceed.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Khởi động mềm Chính Hãng, Bảng Giá 2020](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## Khởi động mềm Chính Hãng, Bảng Giá 2020
+Bảo vệ động cơ. CB Chỉnh dòng; Contactor; Rơ le nhiệt; Màn hình HMI; Cảm biến & Đo lường. Cảm biến;  Khởi động mềm ABB PSTX (kW)  Khởi động mềm ABB PSTX (kW)
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![220kw | ĐẠI LÝ BIẾN TẦN INVT 0948 956835](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## 220kw | ĐẠI LÝ BIẾN TẦN INVT 0948 956835
+Chức năng tự dò bắt tốc độ động cơ cho khởi động êm. Hiệu suất cao ≥98%, nhiễu bức xạ thấp ≤2%, kỹ thuật điều khiển nhiều mức SPWM cho động cơ tiết kiệm điện rất hiệu quả. Tích hợp màn hình HMI dễ dàng giám sát và điều khiển.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Khởi động từ (Contactor) Mitsubishi S-N400 | Beeteco](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## Khởi động từ (Contactor) Mitsubishi S-N400 | Beeteco
+Khởi động từ (contactor) Mitsubishi 3 cực, dòng S-N, định mức 450A,sử dụng cho động cơ 220kW, tiếp điểm NO+NC, coil AC
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bộ khởi động mềm - 220KW - 404A - Vật Tư Điện Minh Tâm](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## Bộ khởi động mềm - 220KW - 404A - Vật Tư Điện Minh Tâm
+Bộ khởi động mềm - khởi động mềm cho động cơ - 220KW - 404A Dòng định mức: 404A Động cơ: 220KW Mã: NJR2-220D
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bộ khởi động mềm cho động cơ 220kW - Model NJR2-220D](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## Bộ khởi động mềm cho động cơ 220kW - Model NJR2-220D
+Bộ khởi động mềm cho động cơ 220kW - Model NJR2-220D  Mã hàng: NJR2-220D  Hãng sản xuất: CHINT Xuất xứ: Trung Quốc Vận chuyển: miễn phí. Bảo hành: bảo hành 12 tháng do lỗi nhà sản xuất. Đổi trả hàng: đổi trả hàng trong vòng 7 ngày kể từ ngày mua hàng.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bộ khỏi động mềm Chint | vattumientay](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## Bộ khỏi động mềm Chint | vattumientay
+Khởi động mềm tên tiếng anh là Sofl Start là thiết bị điện dùng bộ biến đổi điện áp xoay chiều để điều khiển điện áp stato bằng cách điều khiển góc kích SCR.Thường dùng cho động cơ vừa và lớn, động cơ nhỏ có thể dùng phương pháp đổi sao – tam giác.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ATS22C21Q Schneider - 210A - (55-110kW) - (V) - IP20](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## ATS22C21Q Schneider - 210A - (55-110kW) - (V) - IP20
+Khởi động mềm ATS22C21Q Schneider thuộc dòng ATS22 Series, nguồn cấp V, công suất 55kW (230V), 110kW (400V), 110kW (440V), dòng điện định mức 210A, ngõ vào Logic LI1, LI2, LI3, ngõ ra Relay R1, R2. Tiêu chuẩn EN/IEC, kích thước 206x425x299mm, trọng lượng 33kg
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Chương 2: CÁC PHƯƠNG PHÁP KHỞI ĐỘNG ĐỘNG CƠ .](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## Chương 2: CÁC PHƯƠNG PHÁP KHỞI ĐỘNG ĐỘNG CƠ .
+Khởi động động cơ rôto dây quấn Hình 2.5b : Đặc tính mômen . không khởi động được động cơ . Phương pháp này được áp dụng đối với các động cơ có công suất nhỏ và trung bình . Hình 2.1 :Khởi động trực tiếp 2. Khởi động gián tiếp Mục đích của phương pháp này.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ĐẤU ĐIỆN CHO ĐỘNG CƠ MOTOR 3 PHA](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## ĐẤU ĐIỆN CHO ĐỘNG CƠ MOTOR 3 PHA
+Motor 3 pha 220kw RPM 2980  - BÀI 2 . Đấu ( SAO) cho động cơ 3 pha, trên hộp điện motor có các kí hiệu sau.  - Cuộn khởi động gồm hai tổ bối hai, quấn theo kiểu mẹ con, khoảng cách lông dây 10 - 12. cuộn dây 0,40mm lớp đơn.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KHỞI ĐỘNG MỀM NJR2-220D 220KW - Công ty TNHH Thương .](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## KHỞI ĐỘNG MỀM NJR2-220D 220KW - Công ty TNHH Thương .
+Dòng định mức (A):404A. 3 Pha AC380V (±15%) – 50/60Hz. Bảo hành 12 tháng. Giá chưa bao gồm thuế VAT.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![LC1F400M7 Schneider - 400A - 220kW - 220VAC - 3P](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## LC1F400M7 Schneider - 400A - 220kW - 220VAC - 3P
+Khởi động từ LC1F400M7 Schneider dòng LC1F. Khởi động từ loại F, điện áp làm việc 1000V, điện áp chịu xung định mức 8kV. Dòng định mức 400A, công suất động cơ 220kW, điện áp cuộn hút định mức 220VAC 50/60Hz. Số cực 3P, trọng lượng 9.1kg.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Vụ nữ cán bộ tuồn 22 sổ đỏ cho DN: Khởi tố vụ án lợi dụng ](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## Vụ nữ cán bộ tuồn 22 sổ đỏ cho DN: Khởi tố vụ án lợi dụng 
+· (CAO) Tối 28-8, nguồn tin của Báo Công an TP.HCM, Cơ quan CSĐT Công an TP.Đà Nẵng đã khởi tố vụ án "Lừa đảo chiếm đoạt tài sản" và "Lợi dụng chức vụ quyền hạn trong khi thi hành công vụ" liên quan đến vụ việc nữ cán bộ tuồn 22 sổ đỏ tuồn ra ngoài cho giám đốc doanh nghiệp.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Các phương pháp khởi động động cơ không đồng bộ .Ứng dụng ](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## Các phương pháp khởi động động cơ không đồng bộ .Ứng dụng 
+BÁO CÁO TRUYỀN ĐỘNG ĐIỆN GV hướng đẫn : HỒ MINH NHỊ SV thực hiện : Trần Văn Tài MSSV: • Các phương pháp khởi động động cơ không đồng bộ.Ứng dụng trong trường hợp nào, ưu và nhược điểm CHỦ ĐỀ 4 Có 7 cách khởi động động cơ không đồng bộ 1. Khởi động trực tiếp. 2. 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tủ khởi động sao tam giác](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## Tủ khởi động sao tam giác
+TỦ KHỞI ĐỘNG ĐỘNG CƠ SAO TAM GIÁC ĐỘNG CƠ 3 PHA Giảm dòng khởi động của động cơ. Giảm hiện tượng sụt áp cho nguồn điện. Tăng độ bền của các động cơ
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Khởi Động Từ 2 3](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## Khởi Động Từ 2 3
+Chuyên trang về Khởi động từ 2 3 Biến Tần - Inverter. Khởi Động Mềm - Softstarter Aptomat Mcb - Rccb - Rcbo Aptomat Mccb Ezc & Ns Khởi Động Từ - Contactor Relay - Rơ Le Acb - Máy Cắt Không
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bộ khởi động mềm - 22KW/30KW - 42A/57D - Vật Tư Điện Minh .](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## Bộ khởi động mềm - 22KW/30KW - 42A/57D - Vật Tư Điện Minh .
+Bộ khởi động mềm - khởi động mềm cho động cơ - 22KW/30KW - 42A/57D Dòng định mức: 42A/57D Động cơ: 22KW/30KW Mã: NJR2-22D/30D
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Khởi động mềm Schneider ATS22C41Q, Input 3P (230V~440V ](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## Khởi động mềm Schneider ATS22C41Q, Input 3P (230V~440V 
+Nhà phân phối Khởi động mềm Schneider ATS22C41Q, Input 3P (230V~440V), 410A, (110 ~ 220KW) SCHNEIDER. Gọi để có giá tốt
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KHỞI ĐỘNG VÀ ĐIỀU CHỈNH TỐC ĐỘ ĐỘNG CƠ KHÔNG ĐỒNG .](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## KHỞI ĐỘNG VÀ ĐIỀU CHỈNH TỐC ĐỘ ĐỘNG CƠ KHÔNG ĐỒNG .
+1.2.3. Khởi động bằng cách đổi nối Y → Δ Sơ đồ: Các cầu dao CD1, CD2, cầu dao đảo chiều CD Phương pháp này chỉ dùng cho động cơ lúc máy làm việc bình thường nối Δ, khi khởi động nối Y, sau khi tốc độ quay gần ổn định chuyển về nối Δ để làm việc.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ATS48C41Y - CÔNG TY CỔ PHẦN THIẾT BỊ ĐIỆN LONG NGUYỄN](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## ATS48C41Y - CÔNG TY CỔ PHẦN THIẾT BỊ ĐIỆN LONG NGUYỄN
+Khởi động mềm ATS48C41Y ALTISTART 410A 690V ATS48C41Y - 220kW. Mã SP: ATS48C41Y; Price list: 0  ATS48C25Y-Khởi động mềm cho động cơ không đồng bộ - ATS48 - 240 A - 208..690 V - 55..250 KW. ATS48C25Y. Price List: 0 VN 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tủ khởi động sao tam giác](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## Tủ khởi động sao tam giác
+TỦ KHỞI ĐỘNG ĐỘNG CƠ SAO TAM GIÁC ĐỘNG CƠ 3 PHA 15kw/22kw/30kw/37kw/45kw/55kw/65kw/75kw/90kw/110kw/132kw/160kw/220kw/250kw/330kwĐối .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Động cơ Elektrim 220KW Type EM355LA-6](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## Động cơ Elektrim 220KW Type EM355LA-6
+- Kiểu dáng : + B3 loại chân đế + B5 loại mặt bích + B35 loại chân đế + mặt bích - Đặc tính kỹ thuật : + Dòng động cơ EM1 (EFF 1) 3 pha không đồng bộ với kích thước khung IEC từ 63 đến 355. Động cơ được thiết kế cho các yêu cầu hiệu suất cao như: Euro IE2, Australia (cấp 1B), Cemep-eu (Eff 1), SS530 và GB 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tủ khởi động động cơ sao/tam giác động cơ 3 pha](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## Tủ khởi động động cơ sao/tam giác động cơ 3 pha
+TỦ KHỞI ĐỘNG ĐỘNG CƠ SAO TAM GIÁC  132kw/160kw/220kw/2 50kw/330kw Đối với các động cơ có công suất từ 15kw trở lên nên chọn hình thức khởi động bằng phương pháp đổi nối Sao/Tam giác để: + Giảm dòng khởi động của động cơ. +Giảm hiện tượng sụt áp cho 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Contactor, khởi động từ schneider (Techmecanique) | Cty ](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## Contactor, khởi động từ schneider (Techmecanique) | Cty 
+Tôi muốn mua bộ khởi động sao-tam giác cho động cơ 20HP. tuy nhiên, theo catalogue thì có 2 type là sao – tam giac type_1 và type_2 với thông số các contactor khác nhau, cụ thể là: Dạng type_1: CB+OL: GV2ME32; K1: LC1D12 K2: LC1D18/LADS2 K3: LC1D18
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Khởi Động Mềm Chint NJR2](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## Khởi Động Mềm Chint NJR2
+khỞi ĐỘng mỀm cho ĐỘng cƠ 7,5 - 315kw Động cơ (kw) dòng định mức (a) mã 7.5kw/11kw 15a/22a njr2-7.5d/11d 15kw/18.5kw 29a/36a njr2-15d/18.5d 22kw/30kw 42a/57d
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tủ khởi động sao tam giác | Điện gia dụng | Tructiep.vn](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Tủ khởi động sao tam giác | Điện gia dụng | Tructiep.vn
+Đối với các động cơ có công suất từ 15kw trở lên nên chọn hình thức khởi động bằng phương pháp đổi nối Sao/Tam giác để : + Giảm dòng khởi động của động cơ.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Trợ giúp Khởi động mềm](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Trợ giúp Khởi động mềm
+· Chỗ em mới mua một con khởi động mềm schneider ATS48C41Q (dùng cho động cơ 220 KW) Sếp bắt em thử nó. Em có đọc catalog rùi nhưng bây giờ muốn thử thì có thể cắt bỏ tải được không? Mong các bác trợ giúp.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Khởi động động cơ không đồng bộ - Trang 2](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## Khởi động động cơ không đồng bộ - Trang 2
+· Khởi động động cơ hay còn gọi là mở máy động cơ .Khi mở máy động cơ,dòng điện động cơ tăng cao thường từ 5 -7 lần dòng điện định mức động cơ .Với động cơ công suất lớn,dòng điện mở máy này làm giảm điện áp lưới điện,ảnh hưởng đến sự làm việc bình thường của các thiết bị .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KHỞI ĐỘNG MỀM SCHNEIDER 2.2kW 25A ATS01N125FT](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## KHỞI ĐỘNG MỀM SCHNEIDER 2.2kW 25A ATS01N125FT
+KHỞI ĐỘNG MỀM SCHNEIDER ALTISTART 01 – ATS 01 dùng cho động cơ không đồng bộ có dãy công suất từ 0.37-15kW. – Thiết kế nhỏ gọn, tiện lợi, dễ dàng điều khiển, hoạt động ở điện áp từ VAC. – Tích hợp Contactor bypass phù hợp một số yêu cầu hoạt động riêng biệt.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TikTok khởi động cuộc chiến pháp lý chống lệnh cấm của ](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## TikTok khởi động cuộc chiến pháp lý chống lệnh cấm của 
+· Tổng thống Donald Trump ngày càng thù địch với Trung Quốc Ứng dụng video TikTok của Trung Quốc đang khởi động cuộc chiến pháp lý để thách thức lệnh cấm 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Động cơ khởi động động cơ magnetron 2.8kw cho máy kéo ](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## Động cơ khởi động động cơ magnetron 2.8kw cho máy kéo 
+chất lượng Động cơ khởi động máy kéo nhà sản xuất & xuất khẩu - Mua Động cơ khởi động động cơ magnetron 2.8kw cho máy kéo 122801 18546 từ Trung Quốc nhà sản xuất.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bộ khởi động mềm - 90KW - 167A - Vật Tư Điện Minh Tâm](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## Bộ khởi động mềm - 90KW - 167A - Vật Tư Điện Minh Tâm
+Bộ khởi động mềm - khởi động mềm cho động cơ - 90KW - 167A Dòng định mức: 167A Động cơ: 90KW Mã: NJR2-90D
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tủ điều khiển động cơ 220KW](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## Tủ điều khiển động cơ 220KW
+TỦ ĐIỀU KHIỂN ĐỘNG CƠ BẰNG KHỞI ĐỘNG MỀM; TỦ ĐIỀU KHIỂN ĐỘNG CƠ BẰNG PHƯƠNG PHÁP ĐẤU NỐI SAO – TAM GIÁC;  Trang chủ » Sản phẩm » Tủ điều khiển động cơ 220KW. Tủ điều khiển động cơ 220KW. LH: 0973 704 885. Trực tiếp sản xuất và phân phối; Giá thành tốt 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Động Cơ Điện 3 Pha 300HP 220Kw 4 Cực Điện](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## Động Cơ Điện 3 Pha 300HP 220Kw 4 Cực Điện
+Trục động cơ 220kw 4 pole có thể đấu điện xoay cùng chiều hoặc ngược chiều kim đồng hồ; Trong motor có sẵn rơ le nhiệt; nên nối thêm dây tiếp đất cho an toàn lao động; Cần có tủ điện khởi động và rơ le bảo vệ mất pha khi vận hành
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BỘ KHỞI ĐỘNG MỀM NJR2 công suất từ 7.5 - 315kw Giá chỉ từ ](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## BỘ KHỞI ĐỘNG MỀM NJR2 công suất từ 7.5 - 315kw Giá chỉ từ 
+KHỞI ĐỘNG MỀM CHO ĐỘNG CƠ NJR2 7,5 – 315KW. Tiêu chuần: IEC Điện áp làm việc: 380V (± 15%) Dải công suất: 7,5-315KW
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

@@ -1,0 +1,169 @@
+# 2013/2014 học viên mỏ limpopo
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Danh sách học sinh 2013 - 2014 - Thắp Sáng Tương Lai](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## Danh sách học sinh 2013 - 2014 - Thắp Sáng Tương Lai
+Danh sách học sinh được cấp phát học bổng Thắp Sáng Tương Lai năm học 2013 - 2014
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Điểm chuẩn đại học mỏ địa chất 2013(xét chỉ tiêu nv2)](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Điểm chuẩn đại học mỏ địa chất 2013(xét chỉ tiêu nv2)
+diem chuan dai hoc mo dia chat,diem nv2 dh mo,nguyen vong bo sung dh mo dia chat,nam 2012,2013, Điểm chuẩn đại học mỏ địa chất 2013(xét chỉ tiêu nv2)
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Viện KHCN mỏ – Vinacomin: Làm việc với Công ty Kim loại ](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## Viện KHCN mỏ – Vinacomin: Làm việc với Công ty Kim loại 
+Trong giai đoạn, Viện Khoa học công nghệ mỏ – Vinacomin được Bộ Công thương giao thực hiện đề tài nghiên cứu khoa học: Nghiên cứu lựa chọn công nghệ khai thác và tuyển khoáng hợp lý quặng thiếc sa khoáng đáp ứng yêu cầu kinh tế và giảm thiểu ô nhiễm môi trường
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Điểm chuẩn Học Viện An Ninh Nhân Dân 2020,2019 chính xác](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## Điểm chuẩn Học Viện An Ninh Nhân Dân 2020,2019 chính xác
+Điểm chuẩn Học Viện An Ninh Nhân Dân năm 2020,2019. Xem diem chuan truong Hoc Vien An Ninh Nhan Dan 2020,2019 chính xác nhất trên Diemthi.tuyensinh247
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BVPL: Chuyện về nữ giảng viên luôn trăn trở với sự nghiệp ](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## BVPL: Chuyện về nữ giảng viên luôn trăn trở với sự nghiệp 
+Nhưng thông qua học viên, sinh viên, đồng nghiệp và lãnh đạo trường Đại học Kiểm sát Hà Nội chia sẻ, tôi tin rằng, bạn đọc có thể cảm nhận được phần nào về phẩm chất, con người của một nữ giảng viên, Trưởng khoa đã cống hiến hết mình cho sự nghiệp "trồng người" của ngành Kiểm sát.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kì thi tuyển sinh lớp THPT năm học 2012 – 2013 môn thi ](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## Kì thi tuyển sinh lớp THPT năm học 2012 – 2013 môn thi 
+Ngoài ra các em có thể học tại trung tâm hoặc học tại nhà các giáo viên của trung tâm. Các em có thế đăng kí học các môn: Toán, Lý, Hóa, Sinh, Anh, Văn (các khối 9-12, Luyện thi đại học cấp tốc, luyện thi vào lớp 10 cấp tốc, luyện thi tốt nghiệp 12 cấp tốc).
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![mỏ than limpopo](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## mỏ than limpopo
+mỏ ở mpumalanga. Giải pháp » mỏ ở mpumalanga.  Nó bao gồm trên diện tích 19,633 km tại các tỉnh Limpopo và Mpumalanga ở phía đông bắc Nam Phi, và mở rộng 360 (220 dặm) từ Bắc vào Nam và 65 dặm lái xe (40 dặm) từ đông sang tây.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Gương mặt SV: Mảnh đất ấy  - trường ĐH Mỏ](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## Gương mặt SV: Mảnh đất ấy  - trường ĐH Mỏ
+Năm học lan đạt giải Ba, năm và đạt giải Nhất kì thi Olympic cấp trường môn Khoa học Mác - Lenin và Tư tưởng Hồ Chí Minh. Tham gia hỗ trợ tân sinh viên nhập học .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Những nữ thủ khoa Đại học tiêu biểu năm 2014 (P1) | Báo ](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## Những nữ thủ khoa Đại học tiêu biểu năm 2014 (P1) | Báo 
+Thành tích: Đạt học bổng của nhà trường tất cả các kỳ học, học bổng Ngân hàng TMCP Vietcombank năm học ; học bổng của tập đoàn Sumitomo (Nhật Bản) năm học, học bổng Thắp sáng tương lai do ACCA và Deloitte Vietnam khởi xướng, đạt danh hiệu Sinh viên xuất sắc cả 4 năm học, giải Khuyến khích 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sinh viên](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## Sinh viên
+Ngày 23/10/2018, Hiệu trưởng trường Đại học Mỏ - Địa chất đã ra quyết định số 1456/QĐ-MĐC, 1457/QĐ-MĐC và 1458/QĐ/MĐC về việc cho phép 195 đề tài NCKH SV được thực hiện trong năm học .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TỔ KHOA HỌC XÃ HỘI - Phikhanh27](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## TỔ KHOA HỌC XÃ HỘI - Phikhanh27
+KẾT QUẢ HỌC TẬP PCGD - Tr.C QG. BDTX - NCKH. KTKĐ - CNTT. BA CÔNG KHAI; TRỐNG ĐỒNG VIỆT NAM. TỔNG QUAN NHÀ TRƯỜNG. Lịch sử nhà .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Viện KHCN mỏ - Vinacomin: Làm việc với Công ty Kim loại ](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## Viện KHCN mỏ - Vinacomin: Làm việc với Công ty Kim loại 
+Trong giai đoạn, Viện Khoa học công nghệ mỏ - Vinacomin được Bộ Công thương giao thực hiện đề tài nghiên cứu khoa học: Nghiên cứu lựa chọn công nghệ khai thác và tuyển khoáng hợp lý quặng thiếc sa khoáng đáp ứng yêu cầu kinh tế và giảm thiểu ô nhiễm môi trường vùng Quỳ Hợp-Nghệ An&quot; thuộc &quot 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Điểm Chuẩn Học Viện An Ninh Nhân Dân (Anh) Năm 2013](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## Điểm Chuẩn Học Viện An Ninh Nhân Dân (Anh) Năm 2013
+Đại Học Tra Cứu Điểm Chuẩn Đại Học - Cao Đẳng Năm 2013 Nhanh Nhất Và Chính Xác Nhất  Để Nhận Điểm Chuẩn Của Trường Học Viện An Ninh Nhân Dân Năm 2013 - 2014 Tự Động Qua Sms Nhanh Và Chính Xác Nhất Từ Sở Gd&đt. Hãy Soạn Tin: Dtd D. Hoàng Dương. 01-06 06/08/2013
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Nghệ sĩ - Diễn viên Lan Hương (hương Bông)](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## Nghệ sĩ - Diễn viên Lan Hương (hương Bông)
+Tuy xuất thân trong gia đình không có ai làm nghệ thuật, duyên đến với sân khấu rất tình cờ, chị đi thi tuyển cùng người bạn của mình.Chị học lớp diễn viên Nhà hát kịch, tốt nghiệp ra trường chị làm tại Nhà hát lớn Hà Nội.Vừa vào nghề, Nghệ Sĩ Nhân Dân Lan Hương đã vào vai một nhân vật có nội tâm 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ĐỀ THI OLYMPIC TOÁN SINH VIÊN ĐH MỎ ĐỊA CHẤT NĂM 2013 .](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## ĐỀ THI OLYMPIC TOÁN SINH VIÊN ĐH MỎ ĐỊA CHẤT NĂM 2013 .
+ĐỀ THI OLYMPIC TOÁN SINH VIÊN ĐH MỎ ĐỊA CHẤT NĂM 2013,, Free Download PDF, Danh mục tài liệu. Đăng bài Đăng k  Tài liệu,Cao Đẳng - Đại Học
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Thư Viện ĐH Mỏ - Địa Chất](https://github.com/technlg/images/blob/main/45.jpg)</a>
+## Thư Viện ĐH Mỏ - Địa Chất
+Trường Đại Học Mỏ - Địa Chất. Trung tâm thông tin thư viện.  - Cán bộ, sinh viên, học viên thanh toán ra trường tại Phòng mượn - Tầng 1 nhà C5 tầng./.  Thông báo Năm học Thông báo Năm học .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Gương mặt SV: Vẹn toàn tài sắc - trường ĐH Mỏ](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## Gương mặt SV: Vẹn toàn tài sắc - trường ĐH Mỏ
+Nguyễn Linh Chi - thủ khoa đầu ra Trường Đại học Mỏ - Địa chất năm 2017 không chỉ cuốn hút người đối diện bằng vẻ ngoài duyên dáng, thông minh mà còn bởi một bảng dài thành tích mà bất cứ sinh viên đại học nào cũng mong muốn đạt được.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tin Tức – Page 4 – Edu3s](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## Tin Tức – Page 4 – Edu3s
+Thông báo V/v: tổ chức Lễ khai giảng năm học mới và Trao bằng tốt nghiệp cho sinh viên. Trường Đại học Mỏ – Địa chất tổ chức Lễ khai giảng năm học mới và Trao bằng tốt nghiệp cho sinh viên hệ chính quy năm 2013. Cụ thể như sau:
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MC - Biên tập viên Linh Thuỷ](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## MC - Biên tập viên Linh Thuỷ
+MC - Biên tập viên Linh Thuỷ sinh ngày tại Tỉnh Lạng Sơn, nước Việt Nam. Cô sống và làm việc chủ yếu ở Thành phố Hà Nội, nước Việt Nam.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Học bổng OFID Scholarship Award 2015 - DEVI Renewable](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Học bổng OFID Scholarship Award 2015 - DEVI Renewable
+Quỹ Phát triển quốc tế của các nước xuất khẩu dầu mỏ OPEC (OFID) cấp học bổng cho các sinh viên mới tốt nghiệp hoặc sắp tốt nghiệp năm học 2013/2014. OFID sẽ cấp học bổng Thạc sỹ cho ứng viên các nước đang phát triển, với yêu cầu sinh viên đó phải được nhận [.]
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sinh viên.vn](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## Sinh viên.vn
+Nằm trong khuôn khổ hợp tác tài trợ NCKH dành cho sinh viên trong năm học giữa Công ty Dầu khí Rosneft Vietnam B.V và Trường Đại học Mỏ - Địa chất, Nhà trường đã tổ chức Khóa đào tạo "Phương pháp nghiên cứu và thu thập dữ liệu trong nghiên cứu khoa học" dành cho sinh viên và giảng viên trong 03 ngày, từ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Đề thi Olympic Toán sinh viên ĐH Mỏ Địa Chất năm 2013 PDF ](https://github.com/technlg/images/blob/main/65.jpg)</a>
+## Đề thi Olympic Toán sinh viên ĐH Mỏ Địa Chất năm 2013 PDF 
+Đề thi Olympic Toán sinh viên ĐH Mỏ Địa Chất năm 2013,Đề thi, Toán, Olympic, ĐH Mỏ đia chất, Free Download PDF, Đề thi Olympic Toán sinh viên ĐH Mỏ Địa Chất năm 2013
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Đại học mỏ địa chất khai giảng năm học mới tại tphcm](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## Đại học mỏ địa chất khai giảng năm học mới tại tphcm
+· Đại học mỏ địa chất khai giảng năm học mới tại tphcm 19:18 Unknown Sáng 30/9/2014, Trường Đại học Mỏ - Địa chất long trọng tổ chức Lễ khai giảng năm học 2014 – 2015 tại cơ sở TPHCM
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Đề kiểm tra học kỳ I - Đề I năm học: 2013 - 2014 môn: Công ](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## Đề kiểm tra học kỳ I - Đề I năm học: 2013 - 2014 môn: Công 
+Tổng hợp đề thi mẫu tham khảo cho học sinh, sinh viên. Đề kiểm tra học  Bạn đang xem nội dung tài liệu Đề kiểm tra học kỳ I - Đề I năm học: 2013 - 2014 môn  bằng, hình chiếu cạnh ở bên phải hình chiếu bằng. Câu 3: Dụng cụ tháo, lắp gồm: A. Mỏ lết, cờlê, tua 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![download đề thi olympic toán 2013](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## download đề thi olympic toán 2013
+Đề thi Olympic Toán sinh viên năm 2014 Toán - Đại số và Giải tích; Đề thi Olympic Tiếng Anh lớp 10 vòng 2 năm học 2013 - 2014 Đề thi Olympic Tiếng Anh qua mạng (IOE) lớp 10 có đáp án
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tổ chức.edu.vn](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## Tổ chức.edu.vn
+HUMG, Hanoi University of Mining and Geology, UMG, University of Mining and Geology, MĐC, Trường Đại học Mỏ - Địa chất,Khoa Khoa học và Kỹ thuật Địa chất,Department of .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Đề thi lại môn Sinh 7 năm học: 2012 - 2013 - Đề Thi Mẫu](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## Đề thi lại môn Sinh 7 năm học: 2012 - 2013 - Đề Thi Mẫu
+PHÒNG GDĐT TÂN CHÂU Cộng Hòa Xã Hội Chủ Nghĩa Việt Nam -TRƯỜNG THCS THỊ TRẤN Độc Lập- Tự Do- Hạnh Phúc x-0-x ĐỀ THI LẠI MÔN SINH 7 Năm Học: Th
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![lời dẫn chương trình hội nghị cán bộ công chức - 123doc](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## lời dẫn chương trình hội nghị cán bộ công chức - 123doc
+Chương trình Đại hội Công đoàn Nhiệm kỳ 2013 - 2015 và Hội Nghị Cán bộ công chức viên chức năm học 2013 - 2014 . Danh mục: Tư liệu khác. 1 ; 1,248 ; 1 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![van thủy lực di động cho khai thác mỏ](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## van thủy lực di động cho khai thác mỏ
+thiết bị khai thác mỏ crôm để bán ở miền nam Châu Phi 185. Công ty chủ yếu sản xuất máy nghiền di động, máy nghiền cố định, máy làm cát, máy xay và các nhà máy tích hợp được sử dụng rộng rãi trong khai thác mỏ, xây dựng, đường cao tốc, cầu, than, hóa học, luyện kim, chịu lửa .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Thư Viện ĐH Mỏ - Địa Chất](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## Thư Viện ĐH Mỏ - Địa Chất
+Trường Đại Học Mỏ - Địa Chất. Trung tâm thông tin thư viện.  - Cán bộ, sinh viên, học viên thanh toán ra trường tại Phòng mượn - Tầng 1 nhà C5 tầng./. Trân trọng thông báo!  Thông báo Năm học 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Khai thác hiệu quả mỏ thiếc hàm lượng nghèo](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## Khai thác hiệu quả mỏ thiếc hàm lượng nghèo
+Trong khuôn khổ chương trình nghiên cứu khoa học công nghệ của Bộ Công Thương năm 2013 – 2014, phòng Công nghệ Tuyển khoáng thuộc Viện Khoa học và Công nghệ Mỏ - Luyện kim đã thực hiện đề tài Nghiên cứu công nghệ tuyển quặng thiếc gốc khu Suối Giang, tỉnh
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kiểm tra học kì II năm học : 2013 - 2014 môn : địa 6 thời ](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## Kiểm tra học kì II năm học : 2013 - 2014 môn : địa 6 thời 
+NĂM HỌC : 2013 - 2014 TRƯỜNG THCS TRẦN QUỐC TOẢN MÔN : ĐỊA 6 THỜI GIAN : 45 PHÚT ĐỀ: I.TRẮC NGHIỆM : (3đ) Hãy khoanh tròn vào chữ cái đứng trước ý em cho là đúng trong các câu sau: Câu 1: Ozon là chất khí nằm trong tầng bình lưu có tác dụng : A. Tăng lượng ánh sáng mặt trời 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Công trình khoa học của sinh viên](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## Công trình khoa học của sinh viên
+Để góp phần nâng cao chất lượng đào tạo, giúp sinh viên tiếp cận làm quen với công tác NCKH và phát huy tính năng động sáng tạo, trong năm học 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sư tử có thể đã trốn thoát khỏi Vườn quốc gia Kruger](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## Sư tử có thể đã trốn thoát khỏi Vườn quốc gia Kruger
+Niềm tự hào chạy trốn từ Vườn Quốc gia Kruger, một trong những trò chơi dự trữ lớn nhất của châu Phi tại hơn 7.500 cộng dặm vuông, và đã được phát hiện, tin mới nhất, cập nhật thường xuyên
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TỔ KHOA HỌC TỰ NHIÊN - Phikhanh27](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## TỔ KHOA HỌC TỰ NHIÊN - Phikhanh27
+KẾT QUẢ HỌC TẬP PCGD - Tr.C QG. BDTX - NCKH. KTKĐ - CNTT. BA CÔNG KHAI; TRỐNG ĐỒNG VIỆT NAM. TỔNG QUAN NHÀ TRƯỜNG. Lịch sử nhà trường. Chi bộ Đảng. Ban giám hiệu. Tổ chuyên môn. Tập thể GV & CNV. Danh sách học sinh 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cổng Thông Tin Đào Tạo-Đại học chính quy-MOHNMODH](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## Cổng Thông Tin Đào Tạo-Đại học chính quy-MOHNMODH
+mỘt sỐ lƯu Ý khi ĐĂng kÝ mÔn hỌc trỰc tuyẾn hỌc kỲ ii nĂm hỌc 2013 - 2014 (21/04/2015) Điểm tổng kết Giáo dục thể chất, Quốc phòng, chuẩn đầu ra Tin học, chuẩn đầu ra Ngoại ngữ các sinh viên năm cuối ( Tính đến 3/2018 ) 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ban Liên Lạc Sinh Viên THANH HÓA - Đại Học Mỏ Địa Chất Hà ](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## Ban Liên Lạc Sinh Viên THANH HÓA - Đại Học Mỏ Địa Chất Hà 
+41 thành viên; Thành viên trực tuyến. 0 khách và 0 thành viên . Các ý kiến mới nhất. Kết quả thi học kỳ 1 SBD, phòng thi vào lớp 10 Kết quả TN 2014 THÔNG BÁO TUYỂN  Thời khóa biểu HK2-Lần 1-Năm học 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tiết 49, Bài 40: Dầu mỏ và khí thiên nhiên - Năm học ](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Tiết 49, Bài 40: Dầu mỏ và khí thiên nhiên - Năm học 
+1.Giáo viên: Tranh vẽ sơ đồ trưng cất dầu mỏ và ứng dụng các sản phẩm dầu mỏ thu được từ chế biến dầu mỏ. 2.Học sinh: Nghiên cứu trước bài. 5 trang giaoan 18/09/2015 1299 1 Download
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![toán sinh viên 2014](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## toán sinh viên 2014
+toán sinh viên 2014. Bản kiểm điểm đảng viên cuối năm của sinh viên, Đề thi tuyển sinh lớp 10 THPT TP Hà Nội năm học 2013 - 2014 môn Toán - Có đáp án, Đề thi giáo viên dạy giỏi cấp huyện Đức Thọ năm 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Đề thi học kì 2 năm 2015 - 2016 môn: Hoá học 9 thời gian ](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## Đề thi học kì 2 năm 2015 - 2016 môn: Hoá học 9 thời gian 
+Đề thi học sinh giỏi lớp 9 vòng 1 Hạ Hòa năm học: 2015 – 2016 môn: Hóa Học. Lượt xem: 860 Lượt tải: 0. Kỳ thi tuyển sinh vào lớp 10 thpt chuyên năm học môn: Hoá học thời gian: 120 phút (không kể thời gian giao đề) Lượt xem: 376 Lượt tải: 3
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Giáo án tuần 34 - Năm học: 2013 - 2014- Hà Thị Hằng - Giáo ](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Giáo án tuần 34 - Năm học: 2013 - 2014- Hà Thị Hằng - Giáo 
+Giáo án tuần 34 - Năm học: 2013 - 2014- Hà Thị Hằng - Biết làm tính cộng, trừ, nhân, chia (tính nhẩm, tính viết) các số trong phạm vi 100000. - Giải được bài toán bằng hai phép tính.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Trườngnp - Page 11 of 11 - Blog cá nhân của Nguyễn Phúc Trường](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## Trườngnp - Page 11 of 11 - Blog cá nhân của Nguyễn Phúc Trường
+Filed Under: Tin Tức Tagged With: cơ điện, máy mỏ, máy thiết bị mỏ, mỏ địa chất. Thông báo V/v: tổ chức Lễ khai giảng năm học mới và Trao bằng tốt nghiệp cho sinh viên. August 26, 2013 by Trườngnp Leave a Comment
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

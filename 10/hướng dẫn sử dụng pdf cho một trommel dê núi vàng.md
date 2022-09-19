@@ -1,0 +1,173 @@
+# hướng dẫn sử dụng pdf cho một trommel dê núi vàng
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hướng Dẫn Dành Cho Người Mới Nhập Cư - USCIS](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## Hướng Dẫn Dành Cho Người Mới Nhập Cư - USCIS
+Hãy sử dụng hướng dẫn này để tìm hiểu về quyền lợi và trách nhiệm của mình với tư cách là một người nhập cư, tìm hiểu về cách làm việc của chính quyền liên bang, tiểu bang và chính quyền địa phương . Quý vị cũng có thể tìm hiểu về
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tải game Insaniquarium Deluxe Full Offline - Game nuôi cá](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## Tải game Insaniquarium Deluxe Full Offline - Game nuôi cá
+Hướng dẫn cài đặt & chơi game Insaniquarium Deluxe. Bước 1: Các bạn tải game Insaniquarium Deluxe về máy tính. Bước 2: Giải nén bằng phần mềm winrar hoặc 7-zip (xem hướng dẫn cách sử dụng winrar & 7-zip). Bước 3: Chạy file InsaniquariumDeluxe.exe để chơi game.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hướng dẫn cách đánh dấu highlight file pdf trên máy tính ](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## Hướng dẫn cách đánh dấu highlight file pdf trên máy tính 
+Chào các bạn, hôm nay Gà Công Nghệ sẽ hướng dẫn cho các bạn cách đánh dấu highlight lên file pdf trên máy tính.. Cách đánh dấu highlight trong file PDF – Đầu tiên các bạn download và sử dụng phần mềm Foxit Reader.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Trang chủ - Blog](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## Trang chủ - Blog
+Hướng dẫn cách sử dụng lò nướng bánh mì công nghiệp thơm,  Những lưu ý khi in tem nhãn bao bì cho hàng hóa trong sản xuất; 1 Tháng Bảy,  14 Tháng Bảy, 2020 Một số nơi sản xuất in hộp giấy giá rẻ tại TPHCM; 14 Tháng Bảy, 2020 Quy trình sản xuất tại các công ty in ấn bao 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TÀI LIỆU HƯỚNG DẪN SỬ DỤNG Hệ thống CSDL theo dõi nhiệm .](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## TÀI LIỆU HƯỚNG DẪN SỬ DỤNG Hệ thống CSDL theo dõi nhiệm .
+Tài liệu hướng dẫn sử dụng được trình bày theo trình tự từ tổng quan đến chi tiết. Về phần mô tả và hướng dẫn sử dụng đều có hình minh họa kèm theo cho dễ hình dung. 1.3 Thuật ngữ và từ viết tắt CSDL : Cơ sở dữ liệu LĐ: Lãnh đạo 3
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hướng dẫn thêm về thiền hành - Thiền quán thực hành](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Hướng dẫn thêm về thiền hành - Thiền quán thực hành
+Xem và tải phần Hướng dẫn thêm về thiền hành trong THUYẾT GIẢNG GIÁO PHÁP Sách được thực hiện hoàn toàn phi thương mại, nhằm mục đích phụng sự cộng đồng.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Microsoft Outlook 2016, Outlook 2019: Ứng dụng duyệt Mail ](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## Microsoft Outlook 2016, Outlook 2019: Ứng dụng duyệt Mail 
+Microsoft Outlook là một trong những ứng dụng email client phổ biến nhất hỗ trợ cho nhiều tài khoản và giao thức khác nhau. Microsoft Outlook 2019/2016 này được tích hợp sẵn với lịch và danh bạ dễ nhìn.. Giao diện làm việc đơn giản, dễ hiểu của Microsoft Outlook 2019/2016
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![5 thủ thuật sử dụng file PDF hữu ích mà bạn nên biết](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## 5 thủ thuật sử dụng file PDF hữu ích mà bạn nên biết
+· Vâng, và hôm nay mình sẽ sử dụng nó để hướng dẫn cho các bạn một vài thủ thuật nhỏ khi thao tác với file PDF. Đây cũng là một trong những .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ViHoth Corp cung cấp giải pháp 3D SOLIDWORKS .](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## ViHoth Corp cung cấp giải pháp 3D SOLIDWORKS .
+Hãy tận dụng thời gian dùng thử cùng với việc tìm hiểu các video hướng dẫn sử dụng SOLIDWORKS và SolidCAM, các tài liệu hướng dẫn được ViHoth cung cấp miễn phí, để bạn có thể nghiên cứu và trải nghiệm, đánh giá giải pháp CAD/CAM tích hợp thông minh một cách hiệu quả nhất.SOLIDWORKS là phần mềm thiết kế 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tạo 5 hiệu ứng Typography đặc biệt trong Adobe InDesign ](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## Tạo 5 hiệu ứng Typography đặc biệt trong Adobe InDesign 
+Bạn có thể làm theo các hướng dẫn này một cách độc lập, sau đó tinh chỉnh các bước làm này để tạo ra phong cách độc đáo của riêng cho bạn. Thiết lập trang. Đối với tất cả các hiệu ứng dưới đây, chúng ta sẽ sử dụng khổ giấy A4.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Forex là gì? Tìm hiểu về thị trường forex từ A-Z cho người ](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## Forex là gì? Tìm hiểu về thị trường forex từ A-Z cho người 
+Cho nên việc của sàn forex là đi tìm nhà cung cấp giá và sử dụng giá này để cung cấp cho các trader. Chính vì có nhiều nhà cung cấp thanh khoản nên giá cả có thể sẽ khác nhau đôi chút, phụ thuộc vào đối tác mà sàn forex chọn lựa.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Meovui - Mẹo vặt cho cuộc sống mỗi ngày thêm vui](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## Meovui - Mẹo vặt cho cuộc sống mỗi ngày thêm vui
+Tin tức về mẹo vặt cuộc sống, tổng hợp những hướng dẫn cực đơn giản dễ làm giúp bạn tiết kiệm thời gian, công sức cho bản thân và gia đình.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Fshare - Fshare Blog](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## Fshare - Fshare Blog
+Ưu đãi hoàn tiền từ ngày 5/8/2020 đến 31/8/2020 cho gói Fcode và giảm 50% cho các dịch vụ còn lại tại Fshare.vn khi thanh toán quét mã QR của ví Moca tại. Hướng dẫn
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tra cứu văn bản pháp luật, thủ tục hành chính, hỏi đáp ](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## Tra cứu văn bản pháp luật, thủ tục hành chính, hỏi đáp 
+Trang chủ; VỀ CHÚNG TÔI Giới thiệu Liên hệ HỆ THỐNG PHÁP LUẬT Văn bản pháp luật Thủ tục hành chính Hỏi đáp pháp luật Thuật ngữ pháp lý Slide pháp luật DỊCH VỤ
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![sử dụng máy nghiền ne](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## sử dụng máy nghiền ne
+sử dụng đá dòng máy nghiền – Chi phí lò hơi sưởi ấm ở Ý. Sử dụng dng điện 3 pha, động cơ cng suất 45Kw, tốc độ động cơ l 1450 vng/ pht, do vậy m mỗi giờ sẽ cho năng suất lớn khoảng từ 1,8- 2 tấn/h, ty thuộc vo từng nguyn liệu sử dụng.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Đầu tư Cổ phiếu - Phân tích chứng khoán Online](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## Đầu tư Cổ phiếu - Phân tích chứng khoán Online
+Hướng dẫn Đầu tư Cổ phiếu, Chứng khoán, cách mở tài khoản Chứng khoán. Phân tích cổ phiếu, nhận định Thị trường Chứng khoán hàng ngày. Tư vấn và ủy thác đầu tư chứng khoán.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hướng dẫn sử dụng SPSS 20.0 | Tự học SPSS](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## Hướng dẫn sử dụng SPSS 20.0 | Tự học SPSS
+Hướng dẫn sử dụng phần mềm SPSS 20.0 HuongDanSuDungSPSS_P1 HuongDanSuDungSPSS_P2 Data thực hành
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mạch điện tử và Linh kiện điện tử ứng dụng cơ bản đơn giản ](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## Mạch điện tử và Linh kiện điện tử ứng dụng cơ bản đơn giản 
+Hướng dẫn cấu hình Aruba Rap 109 – Cài đặt mesh,  Điện áp 5V được sử dụng nhiều, bạn có thể dùng cấp cho các mạch [] Dùng Raspberry làm Music server và Transport. Đây là một bài viết hay hướng dẫn sử dụng Raspberry làm Music server và 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tài liệu, học tập, trắc nghiệm, tiếng anh, văn bản, biểu ](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## Tài liệu, học tập, trắc nghiệm, tiếng anh, văn bản, biểu 
+VnDoc chia sẻ các tài liệu học tập, biểu mẫu hành chính, văn bản pháp luật, giáo án điện tử, violympic, soạn bài, soạn văn, lời giải hay, giải bài tập các môn, để học tốt các môn Toán, Lý, Hóa, Văn, Anh, Sinh, Sử, Địa, GDCD các lớp tiểu học, THCS, THPT
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Công nghệ](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## Công nghệ
+Chuyên mục Công nghệ của Quantrimang sẽ bao gồm thủ thuật, hướng dẫn sử dụng phần mềm, phần cứng, sửa lỗi mạng, sửa lỗi máy tính trên nhiều hệ .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Vietbando - Bản đồ Việt Nam | Tìm đường đi | Địa chỉ | Địa ](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## Vietbando - Bản đồ Việt Nam | Tìm đường đi | Địa chỉ | Địa 
+Xem bản đồ 63 tỉnh thành, tìm điểm dịch vụ, địa chỉ, điện thoại và đường đi ở Việt Nam, See map, find locations, businesses, addresses, phones and directions in Vietnam.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cộng đồng Digital Marketing Việt Nam](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## Cộng đồng Digital Marketing Việt Nam
+[vc_row][vc_column][vc_column_text] Website DigimarkVN đang trong quá trình chuyển đổi giao diện mới. Các bạn thông cảm nếu ảnh hưởng nhé! Mình để public để lỡ bạn nào càn tài liệu vẫn có thể xem dc! DÙNG CHỨC NĂNG TÌM KIẾM BÊN PHẢI ĐỂ TÌM BÀI HOẶC TẠI LIỆU TẠM NHA! Cộng đồng Digital Marketing Việt NamRead More
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hướng Dẫn Sử Dụng Corel Draw (Bài 1) | CaoMedia](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## Hướng Dẫn Sử Dụng Corel Draw (Bài 1) | CaoMedia
+Sử dụng cho mọi loại da Làm sạch da mà không cần phải kỳ rửa Làm sạch chất bẩn trong da một cách hiệu quả nhất. Dễ dàng sử dụng nhẹ dịu cho da + Reactive Skins (màu đỏ) - Cho da siêu nhạy cảm, hoàn toàn không mùi. + Combination To Oily Skins (màu xanh lá) - Cho da hỗn hợp đến da dầu. + Dry & Sensitive Skins (màu hồng 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Núi Tu-di – Wikipedia tiếng Việt](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## Núi Tu-di – Wikipedia tiếng Việt
+Núi Tu-di (tiếng Phạn: मेरु), cũng gọi là මහා මේරු පර්වතය Sumeru hoặc Sineru là một ngọn núi thiêng với năm đỉnh, được đề cập trong vũ trụ học của Ấn Độ giáo, Kỳ-na giáo và Phật giáo. và được xem như là trung tâm của tất cả các vũ trụ thuộc vật lý, siêu hình và tinh thần.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cách ghi âm trên máy tính bằng Adobe Audition ](https://github.com/technlg/images/blob/main/45.jpg)</a>
+## Cách ghi âm trên máy tính bằng Adobe Audition 
+Adobe Audition là một công cụ xử lý âm thanh trên máy tính được đánh giá cao từ phía người dùng, hỗ trợ ghi âm chất lượng cao, biên tập file âm thanh như chèn thêm, cắt bỏ đoạn âm thanh, thêm bớt hiệu ứng, Phần mềm rất dễ sử dụng ngay cả với những người chỉ mới bước chân vào lĩnh vực này, và bây 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Download.vn Hướng dẫn sử dụng, mẹo vặt, thủ thuật phần mềm ](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## Download.vn Hướng dẫn sử dụng, mẹo vặt, thủ thuật phần mềm 
+Download.vn cung cấp các bài hướng dẫn, thủ thuật,tài liệu và học tập, top ứng dụng và các thông tin về ứng dụng cho Windows, Mac, Android, iPhone
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Môi trường và Đô thị Điện tử](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## Môi trường và Đô thị Điện tử
+MTDT - Đọc báo tin tức 24h, tin nhanh môi trường và đô thị, khu công nghiệp cập nhật nhanh nhất 24h qua
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sơ đồ tư duy và 3 bước vẽ sơ đồ tư duy hiệu quả ít biết ](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## Sơ đồ tư duy và 3 bước vẽ sơ đồ tư duy hiệu quả ít biết 
+Sơ đồ tư duy đã trở nên rất phổ biến, nhưng không có nghĩa là ai cũng dùng nó một cách hiệu quả, dẫn tới tình trạng nhiều người dùng một thời gian thì bỏ.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Trang Sức Cao Cấp PNJ | Cty Cổ Phần Vàng Bạc Đá Quý Phú Nhuận](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## Trang Sức Cao Cấp PNJ | Cty Cổ Phần Vàng Bạc Đá Quý Phú Nhuận
+PNJ tự hào là công ty chế tác và bán lẻ trang sức hàng đầu tại châu Á, giữ vị trí số 1 trong các phân khúc thị trường trang sức trung và cao cấp ở Việt Nam
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Chó núi Pyrenees – Wikipedia tiếng Việt](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## Chó núi Pyrenees – Wikipedia tiếng Việt
+Chó núi Pyrenees (Great Pyrenees hay Pyrenean Mountain Dog) là một giống chó chăn cừu có xuất xứ từ Pháp và Tây Ban Nha nhưng có nguồn gốc từ vùng Kuvasz của Hungari và vùng Maremmano-Abruzzese. Chúng còn có nhiều tên khác như chó gấu
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Rùa núi vàng – Wikipedia tiếng Việt](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## Rùa núi vàng – Wikipedia tiếng Việt
+Rùa núi vàng là một loài động vật đang bị săn bắt rất nhiều. Loài động vật này đang dần đến bờ tuyệt chủng. Vì vậy, chúng ta có nhiệm vụ phải bảo vệ và phát triển nòi giống của rùa núi vàng.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Chó lớn vùng núi Thụy Sĩ – Wikipedia tiếng Việt](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## Chó lớn vùng núi Thụy Sĩ – Wikipedia tiếng Việt
+Chó lớn vùng núi Thụy Sĩ (tiếng Anh: Greater Swiss Mountain Dog, tiếng Đức: Grosser Schweizer Sennenhund, tiếng Pháp: Grand Bouvier Suisse) là một giống chó chăn gia súc có nguồn gốc từ Thụy Sĩ.Đây là một trong 4 giống chó tam thể của Thụy Sĩ ().Chúng thường được sử dụng làm chó canh gác và kéo xe, ngày nay, chúng được 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hướng dẫn sử dụng - PHẦN MỀM LƯỚI ĐIỆN](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## Hướng dẫn sử dụng - PHẦN MỀM LƯỚI ĐIỆN
+Hướng dẫn sử dụng.  Hay để nhập cùng một giá trị cho nhiều ô kề nhau, có thể kéo chuột để chọn các ô này rồi gõ dữ liệu.  (nút này được hiển thị trên nền màu vàng .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hướng dẫn ghi chú trong file PDF](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## Hướng dẫn ghi chú trong file PDF
+Trong quá trình sử dụng, bạn có thể sẽ muốn chèn thêm ghi chú trong file PDF. Hiện có khá nhiều phần mềm hỗ trợ việc này nhưng Quản Trị Mạng sẽ hướng dẫn các bạn cách ghi chú đơn giản bằng phần mềm Foxit Reader. Mời các bạn tham khảo.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Nấu ăn | Dạy nấu ăn ngon | Món ngon dễ làm | Hướng dẫn ](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## Nấu ăn | Dạy nấu ăn ngon | Món ngon dễ làm | Hướng dẫn 
+Sổ tay nấu ăn hướng dẫn bạn cách nấu các món ăn ngon dễ làm hàng ngày, dạy và chia sẻ các bí quyết nấu ăn ngon, cùng bạn vào bếp mỗi ngày.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tổng hợp các phần mềm miễn phí, phần mềm cần thiết nhất ](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## Tổng hợp các phần mềm miễn phí, phần mềm cần thiết nhất 
+Chia sẻ đầy đủ các phần mềm quan trọng và cần thiết cho máy tính sử dụng hệ điều hành Windows, và mình đảm bảo rằng những phần mềm được mình giới thiệu và chia sẻ đều rất đáng để các bạn sử dụng cho chiếc máy tính thân yêu của mình.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Đại bàng vàng – Wikipedia tiếng Việt](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## Đại bàng vàng – Wikipedia tiếng Việt
+Đại bàng vàng (danh pháp hai phần: Aquila chrysaetos) là một trong những loài chim săn mồi nổi tiếng ở Bắc bán cầu.Loài này thuộc họ Accipitridae.Từng phân bố rộng rãi ở Holarctic (Bắc giới), nó đã biến mất khỏi một số khu vực đông dân cư hơn. Mặc dù đã biến mất khỏi hay không phổ biến trong một số .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tài liệu Hướng dẫn sử dụng ](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## Tài liệu Hướng dẫn sử dụng 
+Download miễn phí tài liệu, ebook, văn bản mẫu, mẫu hợp đồng, tài liệu học tập khác.vn free documents
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cộng đồng Designer Việt Nam - Creative Designer](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## Cộng đồng Designer Việt Nam - Creative Designer
+Cộng đồng Designer Việt Nam - Creative Designer. Diễn đàn Designer Việt Nam, học tập và giao lưu với những người đam mê đồ hoạ nhiếp ảnh, điện ảnh, kỹ thuật dựng phim, kỹ .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Văn bản tài liệu học tập và tham khảo miễn phí](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## Văn bản tài liệu học tập và tham khảo miễn phí
+Thư viện nhiều văn bản hành chính phổ biến, những tài liệu học tập cho học sinh, sách tham khảo miễn phí dành cho tất cả mọi người. Vì một xã hội học tập!
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cách Bôi Đen Văn Bản](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## Cách Bôi Đen Văn Bản
+Bôi đen văn bản trong word là một thao tác rất thông dụng khi sử dụng Microsoft Word hay các ứng dụng văn phòng khác. Trong bài này VnDoc sẽ giới thiệu đến bạn cách bôi đen văn bản trong Word cực hiệu quả đấy, cùng tìm hiểu nhé.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hướng dẫn cách sử dụng Outlook 2013 cho người mới ](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## Hướng dẫn cách sử dụng Outlook 2013 cho người mới 
+Nhiều công ty sử dụng Outlook không chỉ đơn giản vì các tính năng email của nó, mà còn các tính năng khác như lên lịch, nhiệm vụ và liên lạc. Một công ty có thể kết nối Outlook với một máy chủ Exchange và mọi người có thể chia sẻ cùng một sổ địa chỉ và lịch.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hướng dẫn tạo sách khổ A5 từ giấy A4 - CTG blog](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## Hướng dẫn tạo sách khổ A5 từ giấy A4 - CTG blog
+Hướng dẫn tạo sách khổ A5 từ giấy A4 Tags: Các bài hướng dẫn Thủ thuật văn phòng On December 02, 2014 Author: CTG blog Tạo sách từ khổ A4 thì rất dễ, bạn chỉ việc soạn thảo với Word rồi mang ra tiệm in hai mặt là được.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

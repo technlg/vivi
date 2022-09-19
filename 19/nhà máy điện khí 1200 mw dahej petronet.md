@@ -1,0 +1,49 @@
+# nhà máy điện khí 1200 mw dahej petronet
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Một nhà máy điện hạt nhân có công suất P= 1000 MW dùng ](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## Một nhà máy điện hạt nhân có công suất P= 1000 MW dùng 
+Một nhà máy điện hạt nhân có công suất P= 1000 MW dùng urani đã làm giàu 25%. Biết rằng, mỗi phân hạch tỏa ra năng lượng trung bình là Wo = 200 MeV. Hiệu suất biến đổi nhiệt năng thành điện nă
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Máy phát điện 125Kva Perkins nhập khẩu chính hãng - Máy ](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## Máy phát điện 125Kva Perkins nhập khẩu chính hãng - Máy 
+Máy phát điện 125KVA Perkins phù hợp dùng dự phòng cho máy công nghiệp, công ty vừa. Công suất 125kVA của model này có thể đáp ứng hầu hết các đối tượng .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Đồ án Thiết kế nhà máy điện với 4 tổ máy công suất 100MW ](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Đồ án Thiết kế nhà máy điện với 4 tổ máy công suất 100MW 
+Nguồn cung cấp là hệ thống và nhà máy. + Cấp điện áp 110 kV: Tương tự ta chọn điểm ngắn mạch N2 trên thanh góp 110 kV. Nguồn cung cấp là hệ thống và nhà máy. + Cấp điện áp 10 kV: Nhằm chọn khí cụ điện mạch máy phát cần tính 2 điểm ngắn mạch N3 và N'3.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Máy phát điện 150KVA (120kw) | Công ty Việt Nhật](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## Máy phát điện 150KVA (120kw) | Công ty Việt Nhật
+Jan 23, 2019· Máy phát điện 150kva (120kw) Máy phát điện 150kVA 3 pha sử dụng nhiên liệu dầu diesel với đầy đủ các chủng loại, model từ các thương hiệu nổi tiếng toàn cầu. Các tổ máy được nhập khẩu nguyên chiếc cùng vỏ chống ồn đồng bộ (có thể chọn loại máy .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Khởi công Khu điều hành Nhà máy điện gió Đông Hải 1](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## Khởi công Khu điều hành Nhà máy điện gió Đông Hải 1
+Apr 15, 2019· Dự án Nhà máy điện gió Đông Hải 1 - giai đoạn 1 sau khi hoàn thành và đưa vào hoạt động, nhà máy sẽ cung cấp điện năng cho hệ thống điện quốc gia với sản lượng bình quân hàng năm khoảng 161,02 triệu kWh.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Máy phát điện Honda EP 2500CX - Quang Minh](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Máy phát điện Honda EP 2500CX - Quang Minh
+Máy phát điện Honda EP 2500CX - Máy phát điện Honda EP 2500CX - máy phát điện Honda chính hãng có logo Honda dập nổi trên thân máy- Máy sử dụng động cơ 4 thì Honda GX 160 mạnh mẽ dung tích xi lanh là 163cc.Bán Máy phát điện Honda EP 2500CX, mua Máy phát đ
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![loadnetfiles.tk](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## loadnetfiles.tk
+> > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > > >
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Indian Oil, đối thủ đáng gờm trong cuộc đua trở thành cổ ](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## Indian Oil, đối thủ đáng gờm trong cuộc đua trở thành cổ 
+Lợi nhuận sau thuế đạt 3,4 tỷ USD, trong đó phần lãi từ mảng khí đốt chiếm gần 60-70%. Tập đoàn đang cùng với Công ty Petronet (Ấn Độ) phân phối các bể nhập khẩu khí đốt LNG tại Dahej & Kochi, cho phép Tập đoàn có quyền tiếp thị 30% thị phần LNG do Petronet mua.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![.: VGP News :. | Thêm một nhà máy điện khí 1.500 tỷ đồng ](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## .: VGP News :. | Thêm một nhà máy điện khí 1.500 tỷ đồng 
+Trên cơ sở thông tin về nhu cầu điện năng của tổ hợp do HTP cung cấp, nhà máy dự kiến có công suất 7 MW và 2.000 tấn khí lạnh với giá trị đầu tư khoảng 1.500 tỷ đồng. Nhà máy sẽ bắt đầu vận hành vào khoảng cuối năm 2018 và thỏa thuận có hiệu lực 15 năm.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Máy phát điện 125KVA (100kw) | Công ty Việt Nhật](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## Máy phát điện 125KVA (100kw) | Công ty Việt Nhật
+Máy phát điện 125kva (100kw) Máy phát điện 125kVA là một thiết bị dùng để dự phòng điện khi bị mất điện, phục vụ nhu cầu phát điện cho các công trình lớn, có nhu cầu cung cấp thêm lượng điện đầu vào,công suất điện hiện tại không phù hợp với nhu cầu. Có rất nhiều loại máy phát điện với nhiều công 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Máy phát điện, máy phát điện giá rẻ](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## Máy phát điện, máy phát điện giá rẻ
+Máy phát điện Hưng Thịnh Phát, nơi cung cấp máy phát điện mới giá rẻ - uy tín tại Việt Nam. LH: 0938.358.401
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Khởi công dự án Nhà máy điện mặt trời BIM 1 Năng lượng ](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## Khởi công dự án Nhà máy điện mặt trời BIM 1 Năng lượng 
+Nhà máy sẽ đặt hơn 90.000 tấm pin năng lượng mặt trời, khi đi vào hoạt động, Nhà máy sẽ cho sản lượng điện hàng năm lên đến 50 triệu kWh. Dự kiến Nhà máy điện mặt trời BIM 1 sẽ hòa lưới điện .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

@@ -1,0 +1,45 @@
+# arabic đôi 26amp 3b đơn cuộn tronic con lăn
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bài 5. CHUYỂN ĐỘNG TRÒN ĐỀU | Page 5 | Tăng Giáp](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Bài 5. CHUYỂN ĐỘNG TRÒN ĐỀU | Page 5 | Tăng Giáp
+Hãy đăng ký thành viên để có thể dễ dàng hỏi bài, trao đổi, giao lưu và chia sẻ về kiến thức
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bán đất đường số 1 khu dân cư Hiệp Thành 1 DT 5x23m, 115m2 ](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## Bán đất đường số 1 khu dân cư Hiệp Thành 1 DT 5x23m, 115m2 
+Với vị trí bán đất đường số 1 khu dân cư Hiệp Thành 1 này khách mua có thể xây nhà ở hoặc kinh doanh buôn bán cafe, khách sạn, nhà nghĩ, shop, văn phòng, quán ăn.đều được cả.. Giá bán: Thỏa Thuận Hiện tại để tìm 1 vị trí mặt tiền đường lớn, diện tích hợp lý mà có thể kinh doanh buôn bán hay ở như 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Module Điều Khiển Động Cơ Bước A3967](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## Module Điều Khiển Động Cơ Bước A3967
+Mạch Điều Khiển Động Cơ Bước A3967 dùng để điều khiển motor step một cách đơn giản, tương thích với bất cứ tín hiệu có thể xuất ra tín hiệu xung số từ 0 đến 5V (hoặc xung 0 đến 3.3V nếu hàn jumper SJ2 lại). mạch step driver A3967 sử dụng nguồn từ 7V đến 20V, nguồn cấp cho step motor bất kỳ .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BÀI 7: ĐIỀU KHIỂN ĐỘNG CƠ BƯỚC. | MCA - Diễn Đàn Vi Điều Khiển](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## BÀI 7: ĐIỀU KHIỂN ĐỘNG CƠ BƯỚC. | MCA - Diễn Đàn Vi Điều Khiển
+Do đấu chung nguồn nên khi đặt mức điện áp 0V (mức logic 0) thì sẽ có dòng chạy qua các cuộn dây và ngược lại khi đặt mức điện áp 5V (mức logic 1) thì không có dòng qua các cuộn dây. Khi cấp 1 xung điện áp lên 1 cuộn dây stato (phần ứng) thì roto (phần cảm) của .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Dây điện Trần Phú tròn đặc 2 ruột VCm 2x 4 mm](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## Dây điện Trần Phú tròn đặc 2 ruột VCm 2x 4 mm
+Hiện nay tại Hà Nội có hai công ty có tên gọi và sản xuất mặt hàng rất giống nhau là Công ty Cổ phần Cơ điện Trần Phú, địa chỉ tại 41 Phương Liệt, Thanh Xuân và Công ty Cổ phần dây điện và phích cắm Trần Phú tại quận Từ Liêm.Lí do là năm 2008 Công ty gốc ở Phương Liệt đã kí hợp đồng nhượng quyền 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![mỏ đá liu Châu nghiền nát hợp đồng](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## mỏ đá liu Châu nghiền nát hợp đồng
+Máy nghiền con lăn kiểu đứng siêu mịn dòng LUM.  sự khác biệt giữa máy nghiền hàm đơn và đôi.  đá 26amp 3b nhà cung cấp tổng hợp 26amp 3b mỏ đá 26amp 3b .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Dây điện Cadisun 3x2.5mm2, Dây tròn đặc 3 ruột Cadisun 3x2 ](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Dây điện Cadisun 3x2.5mm2, Dây tròn đặc 3 ruột Cadisun 3x2 
+cung cấp dây điện tròn đặc cadisun uy tín giá rẻ nhất hà nội. Liên hệ mua dây điện Cadisun 3x2.5mm2 - 04.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Phuclanshop - Điện tử Phúc LanTự học điện tử: Bài 2 ](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## Phuclanshop - Điện tử Phúc LanTự học điện tử: Bài 2 
+ Với Q2, trên chân C là một motor DC, và diode dập xung nghịch phát ra từ các cuộn dây trong motor. Khi xuất bit 1, transistor Q2 bão hòa và motor đuợc cấp dòng nên quay, khi xuất bit 0, Q2 ngưng dẫn và motor sẽ dừng.  Với Q3, trên chân C là một relay 12V.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Q5.C245: Nếu có thể đi trọn cuộc đời – Tô Ngọc Hà](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## Q5.C245: Nếu có thể đi trọn cuộc đời – Tô Ngọc Hà
+trời ơi tình yêu của anh ko những dành tình cảm cho người con gái của mình mà từng bước đem cô ấy trưởng thành hơn, có bao dung bao bọc nhưng cũng đầy thử thách cho cô ấy, đôi khi tình yêu bao dung bao bọc quá chỉ làm cho người con gái dựa dẫm nũng nịu người yêu, mà gặp phải khó khăn thì người con .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cáp điện tròn – cổng trục dầm đôi 5 tấn - palang điện ](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## Cáp điện tròn – cổng trục dầm đôi 5 tấn - palang điện 
+Cáp điện tròn 14C1.5mm2 dùng cho điều khiển cổng trục dầm đôi 5 tấn .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Máy đo huyết áp Omron Hem-7130 đo cực chuẩn cao cấp, giá rẻ](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## Máy đo huyết áp Omron Hem-7130 đo cực chuẩn cao cấp, giá rẻ
+Jul 19, 2018· Đơn hàng của khách là 1 Máy đo huyết áp bắp tay Omron Hem 7130, giá 1.085.000Đ được giao hàng miễn phí, hướng dẫn sử dụng miễn phí. Bên em sẽ liên hệ chốt đơn .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

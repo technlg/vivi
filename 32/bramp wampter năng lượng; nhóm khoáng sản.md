@@ -1,0 +1,29 @@
+# bramp wampter năng lượng; nhóm khoáng sản
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Nhóm sản phẩm Công nghệ - Thiết Bị - chương Năng lượng ](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## Nhóm sản phẩm Công nghệ - Thiết Bị - chương Năng lượng 
+Nông - Lâm nghiệp - Thủy sản Dệt may - Da giày CN nặng - Luyện kim Thiết bị văn phòng - In ấn - Xuất bản Gốm - Sứ - Thủy tinh Ngân hàng - Tài chính - Bảo hiểm  Lĩnh vực: Năng lượng. Chào bán: Công ty TNHH thuỷ lực - máy.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Lam Nhôm Chắn Nắng - Giải Pháp Phá Cách - 028 ](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## Lam Nhôm Chắn Nắng - Giải Pháp Phá Cách - 028 
+Lam nhôm chắn nắng là sản phẩm cao cấp, đa chức năng. Mang giá trị lớn về công năng với tính thẩm mỹ vượt trội. Công trình lam nhôm luôn dẫn đầu trong các bình chọn công trình tiêu biểu, đại diện cho xu hướng thiết kế kiến trúc ngoại thất đương đại.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Lam nhôm chắn nắng - Xua tan oi nóng](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## Lam nhôm chắn nắng - Xua tan oi nóng
+Lam nhôm chắn nắng có công dụng che nắng và giảm nhiệt cho các hệ thống nhà có sử dụng vách nhôm kính lớn. Đặc biệt là các nhà có hướng tây, chói mắt và nóng do hấp thụ nhiệt ban chiều. Điều này giúp giảm chi phí năng lượng làm mát cho tòa nhà.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Lam nhôm (lam chắn nắng) Xingfa hợp thẩm mỹ và bền đẹp ](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## Lam nhôm (lam chắn nắng) Xingfa hợp thẩm mỹ và bền đẹp 
+Sản phẩm có tác dụng chống thấm, chống trầy xước, chịu nước, chống ẩm rất tốt. Có khả năng chịu nhiệt cao gấp nhiều lần so với kim loại thông thường. Áp dụng công nghệ sơn tĩnh điện không bị phai màu theo thời gian, độ bền cao.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Thanh năng lượng Hammer Bar 50g - Phân Phối Sản ](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## Thanh năng lượng Hammer Bar 50g - Phân Phối Sản 
+Thanh năng lượng Hammer Bar 50g với hương vị thơm ngon, cực kỳ dễ tiêu hóa. Nhờ hàm lượng protein cao, carbs chất lượng, cơ bắp sẽ phục hồi rất nhanh. Hammer Bar dành riêng cho người chạy bộ, đạp xe và bơi.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Samsung Daily News – – STATOPERATOR](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## Samsung Daily News – – STATOPERATOR
+· Samsung Galaxy Note 9 Với 8 Tính Năng Thú Vị: 2: טלפון סלולרי Samsung Galaxy Note 10 Plus SM-N975F 256GB סמסונג: 2: Reloj Samsung Galaxy Watch 46mm: 2: Samsung Galaxy A50 A505G 6GB/128GB Dual Sim – White: 2: ỐP NHŨ ICON ỨNG DỤNG HÀNG ĐỘC CHO ĐIỆN THOẠI SAMSUNG HÀNG CAO CẤP VANDO: 2
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Lam chắn nắng hình hộp - Nhà Thầu Nhôm Kính](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## Lam chắn nắng hình hộp - Nhà Thầu Nhôm Kính
+VIỆT HÀN chuyên cung cấp, lắp đặt nhôm kính hệ lam chắn nắng tiêu biểu. Lam nhôm hình hộp với độ dày nhôm từ 1,0 - 2,0mm giảm tiếng ồn, chống cháy, không bị oxy hóa, độ bền màu cao. Dễ dàng thi công lắp đặt giá ưu đãi. Liên hệ: 0904 665 238
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

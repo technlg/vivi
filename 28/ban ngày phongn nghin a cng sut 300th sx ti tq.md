@@ -1,0 +1,29 @@
+# ban ngày phongn nghin a cng sut 300th sx ti tq
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![300 nghìn - Tin tức mới nhất 24h qua - VnExpress](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## 300 nghìn - Tin tức mới nhất 24h qua - VnExpress
+300 nghìn - Bà Phương trần tình: "Cái dở của tôi trong việc này chính là đã không báo giá cụ thể trước những yêu cầu của khách hàng" - câu chuyện đang thu hút sự quan tâm của cộng đồng. - VnExpress.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Nhân viên văn phòng một Cty tư nhân nghĩ gì mỗi 6h30 ](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## Nhân viên văn phòng một Cty tư nhân nghĩ gì mỗi 6h30 
+Cảm giác "không thể lớn được" theo tôi từng ngày, trong từng công việc mà tôi làm, mỗi 7h30 sáng và 6h30' chiều, mỗi 6 ngày trong tuần! Tôi thấy chán ghét bản thân, nhưng tôi vẫn cần mẫn làm.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ban day chuyn nghin a cng sut 300th sx ti tq](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## ban day chuyn nghin a cng sut 300th sx ti tq
+ban day chuyn nghin a cng sut 300th sx ti tq. Home > ban day chuyn nghin a cng sut 300th sx ti tq; Send A Message . You can get the price list and a GM representative will contact you within one business day. Ôtô Xe máy - Thông tin siêu xe, xế hộp, tư vấn mua bán xe  XE VnExpress - Thông tin mới nhất về các loại xe mới ra trên thị trường: xe máy, ô-tô 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![300 nghìn đồng - Tin tức mới nhất 24h qua - VnExpress](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## 300 nghìn đồng - Tin tức mới nhất 24h qua - VnExpress
+300 nghìn đồng - Ngày làm việc đầu năm 2018, nhiều tài xế gửi ôtô ở phố trung tâm Hà Nội cho biết họ chỉ đỗ xe vài tiếng đã phải trả trên 100.000 đồng. - VnExpress.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Vàng tăng gần 200 nghìn đồng/lượng, USD tiếp tục giảm - 19 ](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## Vàng tăng gần 200 nghìn đồng/lượng, USD tiếp tục giảm - 19 
+TPO - Mở phiên giao dịch sáng nay (19/2), giá vàng trong nước tăng mạnh gần 200 nghìn đồng mỗi lượng và chỉ còn cao hơn vàng thế giới 400 nghìn đồng. Trong khi đó, tỷ giá USD tại các ngân hàng thương mại tiếp tục giảm.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Thu ngân sách tăng 572 nghìn tỷ đồng: Vẫn không bù nổi chi](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## Thu ngân sách tăng 572 nghìn tỷ đồng: Vẫn không bù nổi chi
+5 năm, thu ngân sách tăng 572 nghìn tỷ đồng. Báo cáo bổ sung tình hình ngân sách 2018, dự toán 2019 của Chính phủ trình Quốc hội cho thấy, thu ngân sách năm 2018 đạt trên 1,4 triệu tỷ đồng. Con số này tăng tới hơn 100 nghìn tỷ đồng (+8%) so dự toán Quốc hội giao.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hơn 300 công nhân nguy cơ mất trắng 19 tỷ đồng | Thời sự ](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## Hơn 300 công nhân nguy cơ mất trắng 19 tỷ đồng | Thời sự 
+Ngày 3/5, ông Trần Văn Đồng, Chủ tịch Công đoàn cơ sở Công ty CP đường Bình Định (BISUCO, ở H.Tây Sơn, Bình Định), cho biết đang khởi kiện chủ công .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

@@ -1,0 +1,25 @@
+# bạn có thể làm gì từ xỉ thép
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Thép mạ điện là gì? Các loại thép có thể làm cửa thép vân ](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## Thép mạ điện là gì? Các loại thép có thể làm cửa thép vân 
+Thép là 1 hợp kim của sắt với 1 vài nguyên tố hóa học khác nhau, và được chế tạo từ hàng ngàn năm trước. Thép hiện đại ngày này được sản xuất trên phương pháp mới, với nhiều đặc tính ưu việt hơn. Đồng thời cũng được áp dụng nhiều trong đời sống. Thép mạ điện là 1 loại thép hiện đại, được 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Đá viên không tan dùng làm lạnh bằng thép không gỉ ](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## Đá viên không tan dùng làm lạnh bằng thép không gỉ 
+Đặc điểm: Làm mát đồ uống yêu thích của bạn mà không pha loãng Không thay đổi hương vị đồ uống An toàn khi sử dụng với rửa chén Chất làm lạnh không độc hại Vật liệu: thép không gỉ Kích thước: xấp xỉ. 1x1x1 inch / 2,5x2,5x2,5 cm Khối lượng xấp xỉ. 31kg Có rất nhiều sản phẩm có .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bạn có biết xi măng làm từ gì? Xi măng có tính chất gì không?](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## Bạn có biết xi măng làm từ gì? Xi măng có tính chất gì không?
+Bạn có biết xi măng làm từ gì?  Theo đó nếu kim Vicat có thể cắm sau từ 33- 35mm thì hồ xi măng đó đạt tiêu chuẩn. Ngoài ra,  (phơi 1 ngày trong khuôn ở môi trường có nhiệt độ xấp xỉ 27 độ.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mác thép là gì? Phân biệt thép CCT34, thép SS400, thép C45](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## Mác thép là gì? Phân biệt thép CCT34, thép SS400, thép C45
+Các loại thép có ký hiệu này có giới hạn bền kéo từ khoảng MPa. Độ bền kéo này xấp xỉ ngang bằng với mác thép CT3 của Nga, CT42, CT51 của Việt Nam, Q235 của Trung Quốc Mác thép SS400 nằm trong nhóm "Rolled steel for general structures" (thép cán thông dụng).
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Xỉ thép xử lý triệt để photpho trong nước thải](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Xỉ thép xử lý triệt để photpho trong nước thải
+· Không sử dụng vi sinh vật hoặc chất sinh học, TS Nguyễn Trọng Anh ứng dụng xỉ thép để xử lý photpho trong nước thải, hiệu suất loại bỏ tới 99,88%.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tiền thân của thép không gỉ được tìm thấy ở Iran có niên ](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## Tiền thân của thép không gỉ được tìm thấy ở Iran có niên 
+Từ lâu thép không gỉ (chủ yếu là hợp kim bổ sung thêm crom) được cho là phát minh từ cuối thế kỷ 19, đầu thế kỷ 20. Nhưng các bằng chứng khảo cổ mới nhất cho thấy, thép không gỉ có thể đã ra đời từ .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

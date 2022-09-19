@@ -1,0 +1,41 @@
+# trung quốc khai thác thiết bị đá curser mashnry indea
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Trung Quốc mua công ty Canada để khai thác dầu biển Ðông ](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## Trung Quốc mua công ty Canada để khai thác dầu biển Ðông 
+Dec 16, 2012· Một trong những chủ đích Trung Quốc đang mua công ty khai thác dầu khí Nexen của Canada là muốn tiếp cận kỹ thuật khoan tìm dầu khí ở vùng biển rất sâu hiện họ đang thiếu để khai thác Biển Ðông. Logo công ty dầu khí Nexen. (Hình: Internet) Một bài phân tích của.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Top 5 quốc gia rẻ nhất để khai thác Bitcoin - Trang tin ](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## Top 5 quốc gia rẻ nhất để khai thác Bitcoin - Trang tin 
+#5. TRUNG QUỐC. Tính hợp pháp của việc khai thác Bitcoin ở Trung Quốc có thể không chắc chắn với Ủy ban Cải cách và Phát triển Quốc gia (NDRC) kêu gọi loại bỏ ngành công nghiệp này. Tuy nhiên, vẫn chưa có lệnh cấm hoàn toàn đối với việc khai thác BTC.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Trung Quốc - Philippines cùng khai thác Biển Đông? - Tuổi ](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## Trung Quốc - Philippines cùng khai thác Biển Đông? - Tuổi 
+Trung Quốc háo hức "khai thác chung" Theo báo South China Post của Hong Kong, từ cuối những năm 1980 Trung Quốc đã lần lượt nêu ý tưởng "gác tranh chấp, cùng khai thác" với Philippines, Indonesia, Singapore và Malaysia.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Thiết bị "lạ" khai thác phong năng | Khoa học | Thanh Niên](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## Thiết bị "lạ" khai thác phong năng | Khoa học | Thanh Niên
+Điện gió đã trở nên rất quen thuộc với hình ảnh chiếc turbin 3 cánh. Nhưng với một cựu chiến binh thời Đệ nhị thế chiến năm nay đã 89 tuổi, thì thiết bị khai thác phong năng của ông "không có cánh".
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Người khổng lồ khai thác Trung Quốc "lần đầu tiên" nộp đơn ](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## Người khổng lồ khai thác Trung Quốc "lần đầu tiên" nộp đơn 
+Người khổng lồ khai thác Trung Quốc "lần đầu tiên" nộp đơn IPO tại Mỹ. Gã khai thác Bitcoin khổng lồ của Trung Quốc Canaan Creative được báo cáo đã đệ trình Yêu cầu phát hành công khai ban đầu (IPO) với con số 200 triệu USD tới các nhà quản lý Hoa Kỳ.. Canaan đánh bại Bitmain khi nộp hồ sơ IPO
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Thiết bị khai thác và vận tải mỏ](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## Thiết bị khai thác và vận tải mỏ
+Thiết bị khai thác và vận tải mỏ .  P.Trung Văn, Q.Từ Liêm, TP.Hà Nội Chi nhánh Quảng Ninh: Km7, Quang Hanh, Cẩm Phả, Quảng Ninh. Điện thoại: 0243 853 8855 - Fax: 0243 853 8833 Hotline: 0982 058 812 - 0982 068 812 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Trung Quốc đẩy mạnh khai thác dầu khí ở Biển Ðông](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## Trung Quốc đẩy mạnh khai thác dầu khí ở Biển Ðông
+Trung Quốc đang "tăng nhanh tốc độ" thăm dò và khai thác dầu khí ở Biển Ðông. Hãng thông tấn IANS hôm nay đưa tin rằng việc Tổng Công ty Dầu khí Hải dương Trung Quốc, gọi tắt là CNOOC, mới đây mời thầu quốc tế hợp tác khai thác dầu khí ở 26 lô trên .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Đá - Thiết Bị Khai Thác Đá, máy khai thác đá](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## Đá - Thiết Bị Khai Thác Đá, máy khai thác đá
+Ngành: Đá - Thiết Bị Khai Thác Đá 91/B ấp Bình Thung,Đường DT 743, X. Bình An, H. Dĩ An, Bình Dương (0274) 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Thiết Bị Khai Thác Đá - sản xuất Thiết Bị Khai Thác Đá ](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## Thiết Bị Khai Thác Đá - sản xuất Thiết Bị Khai Thác Đá 
+Ngành: Đá - Thiết Bị Khai Thác Đá No. 508, 3th Huanghe Road, Binzhou City, Trung Quốc. (Telephone/ Wechat)
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![khai thác đá - vietnambiz](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## khai thác đá - vietnambiz
+khai thác đá Doanh thu mảng đá xây dựng Cường Thuận Idico tăng 30% trong 6 tháng đầu năm Cường Thuận Idico cho biết sẽ tăng tốc khai thác mảng kinh doanh đá xây dựng để đảm bảo tăng trưởng, dự kiến tổng trữ lượng sau khi có thêm mỏ đá Thiên Tân 11 sẽ tăng lên 67 triệu m3.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
